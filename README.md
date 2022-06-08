@@ -17,6 +17,20 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-06-08
+
+* [20220608-01-晓观天下：俄乌战争的一段少为人知的历史及多方考量](https://www.asuswebstorage.com/navigate/a/#/s/45CB51DD17854A0A914C4FA4C56C8A73Y)
+* [20220608-02-晓观天下：路透调查：供应链加速恢复 中国出口强劲反弹](https://www.asuswebstorage.com/navigate/a/#/s/123CBA7E910A49E8B7B0389DD426323CY)
+* [20220608-03-晓观天下：马斯克发推文断言中国将会发生“人口崩溃”](https://www.asuswebstorage.com/navigate/a/#/s/E957E2DE827E45C8BB9F49BB022C74AAY)
+* [20220608-04-晓观天下：上海解封但坚持清零，外企的最新动态](https://www.asuswebstorage.com/navigate/a/#/s/C68DE7127434486B842AF74D2BAD2844Y)
+* [20220608-05-晓观天下：知识人的反思与心态](https://www.asuswebstorage.com/navigate/a/#/s/C75C3905EA7643BCB8A85EE0B6D242DCY)
+* [20220608-06-晓观天下：核酸利益集团悬了](https://www.asuswebstorage.com/navigate/a/#/s/1C3972B2E2F24F0696882FC44D3F1B27Y)
+* [20220608-07-晓观天下：白宫俄乌战争的立场可以归结为三句话](https://www.asuswebstorage.com/navigate/a/#/s/D10242FDD5864E4DA38B5B77B72D2EAAY)
+* [20220608-08-晓观天下：苹果公开“免密码登入”新技术](https://www.asuswebstorage.com/navigate/a/#/s/F82F5BCBD074467B9BD8FA89E7E7354CY)
+* [20220608-09-晓观天下：郑永年“重振中国经济的十点建议”](https://www.asuswebstorage.com/navigate/a/#/s/A7E6C2663DF24492AAFED563F9A78FDCY)
+
+
 ### 2022-05-31
 
 * [20220531-01-晓观天下：美股抛售已尽？](https://www.asuswebstorage.com/navigate/a/#/s/D7EDCB9B387A4DB2BC38034B38101784Y)

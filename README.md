@@ -26,6 +26,7 @@
 * [20220610-04-晓观天下：俄罗斯“战斗民族”是中国人的误解](https://www.asuswebstorage.com/navigate/a/#/s/A320D2A1008E44A39A64A7FDDF0A6B23Y)
 * [20220610-05-晓观天下：俄罗斯人是福利和幸福程度高的国家吗？](https://www.asuswebstorage.com/navigate/a/#/s/6034C7A6E1234E34AA9B702F53AAEB30Y)
 * [20220610-06-晓观天下：马斯克被关注了，啥时请喝茶？](https://www.asuswebstorage.com/navigate/a/#/s/50BD8651ECBC4ACBBE6B7E9F14D6B64AY)
+* [20220610-07-晓观天下：马斯克威胁取消收购后 传推特将让步](https://www.asuswebstorage.com/navigate/a/#/s/11D10C5B95AC42FB8989FA5280E5CBC0Y)
 
 
 ### 2022-06-08

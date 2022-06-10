@@ -18,6 +18,16 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2022-06-10
+
+* [20220610-01-晓观天下：国务院宣布防疫“九不准”，严禁各地在防疫方面采取“一刀切”和“层层加码”等现象](https://www.asuswebstorage.com/navigate/a/#/s/381235FB1C5543818A15A468A021E500Y)
+* [20220610-02-晓观天下：核酸筛检站经济几何？](https://www.asuswebstorage.com/navigate/a/#/s/BEB5572836AD483FB7F16E1E483B4544Y)
+* [20220610-03-晓观天下：中国医保基金无法经受核酸检测折腾](https://www.asuswebstorage.com/navigate/a/#/s/30E6A3A532EF47458285B32374F645F6Y)
+* [20220610-04-晓观天下：俄罗斯“战斗民族”是中国人的误解](https://www.asuswebstorage.com/navigate/a/#/s/A320D2A1008E44A39A64A7FDDF0A6B23Y)
+* [20220610-05-晓观天下：俄罗斯人是福利和幸福程度高的国家吗？](https://www.asuswebstorage.com/navigate/a/#/s/6034C7A6E1234E34AA9B702F53AAEB30Y)
+* [20220610-06-晓观天下：马斯克被关注了，啥时请喝茶？](https://www.asuswebstorage.com/navigate/a/#/s/50BD8651ECBC4ACBBE6B7E9F14D6B64AY)
+
+
 ### 2022-06-08
 
 * [20220608-01-晓观天下：俄乌战争的一段少为人知的历史及多方考量](https://www.asuswebstorage.com/navigate/a/#/s/45CB51DD17854A0A914C4FA4C56C8A73Y)

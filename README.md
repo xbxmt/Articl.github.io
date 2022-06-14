@@ -18,6 +18,11 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2022-06-12
+
+* [20220612-01-晓观天下：人民币兑美元汇率跌破重要关口](https://www.asuswebstorage.com/navigate/a/#/s/D772206789274132A53DCEBEBE32EA1CY)
+
+
 ### 2022-06-11
 
 * [20220611-01-赵晓荐文：其实他们对西方了如指掌，他们不蠢只是坏](https://www.asuswebstorage.com/navigate/a/#/s/4ED34B835C214383818B8EC8FC1F968AY)

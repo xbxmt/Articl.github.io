@@ -23,6 +23,7 @@
 * [20220615-01-晓观天下：中国再次降为美国第三大贸易伙伴](https://www.asuswebstorage.com/navigate/a/#/s/206C4913C4D9484F85ECD057A4BB01E0Y)
 * [20220615-02-晓观天下：中国多地首套房贷利率降至10年低点](https://www.asuswebstorage.com/navigate/a/#/s/8562A3B7CBEC42A38560E1ACC56A1E3FY)
 * [20220615-03-推荐阅读：谷歌工程师称机器人有灵性而被停职](https://www.asuswebstorage.com/navigate/a/#/s/8DE7826FD018488889792593659C6FCDY)
+* [20220615-04-晓观天下：5月多项经济数据略有回稳 失业率仍居高位](https://www.asuswebstorage.com/navigate/a/#/s/114294EDF6ED4495840D071577F6CC9AY)
 
 
 ### 2022-06-12

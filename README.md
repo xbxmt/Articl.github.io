@@ -18,7 +18,21 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
-### 2022-06-12
+### 2022-06-16
+
+* [20220616-01-晓观天下：加密货币血崩式下跌 华人首富半年赔856亿美元](https://www.asuswebstorage.com/navigate/a/#/s/6FEECEB3A59147689911D891209704A2Y)
+* [20220616-02-赵晓荐文：揭穿关于杨振宁的几个虚假信息](https://www.asuswebstorage.com/navigate/a/#/s/5BF00454D7904333A813A6BD53241259Y)
+* [20220616-03-晓观天下：形势开始改变 美中又一领域将脱钩](https://www.asuswebstorage.com/navigate/a/#/s/AB22810C5A214831ABDBF4B7EF099880Y)
+* [20220616-04-晓观天下：俄乌进入关键时刻 情报机构预测未来3个走向](https://www.asuswebstorage.com/navigate/a/#/s/E9A315CC7E9E4382B787F140705714E2Y)
+* [20220616-05-晓观天下：健康码的不当使用后果极其严重](https://www.asuswebstorage.com/navigate/a/#/s/B74AD8B24D3649F2B7B8858C8464D74EY)
+* [20220616-06-晓观天下：今年各地频发降薪潮](https://www.asuswebstorage.com/navigate/a/#/s/4F50DE4D22BC4099A86455228AA23379Y)
+* [20220616-07-赵晓荐文：我们这是怎么了](https://www.asuswebstorage.com/navigate/a/#/s/C8A515AF15C94AA8B3D39A3817421719Y)
+* [20220616-08-晓观天下：美联储大幅加息 房贷、卡债、股票都吃不消](https://www.asuswebstorage.com/navigate/a/#/s/3DDD79D5E4904C2B89DA15F509D66C0FY)
+* [20220616-09-晓观天下：马斯克真的变右了！](https://www.asuswebstorage.com/navigate/a/#/s/BFA20CBBB7A64387B75C0F545B8063D9Y)
+* [20220616-10-晓观天下：股市、比特币被死神追杀 马斯克：下一个是楼市](https://www.asuswebstorage.com/navigate/a/#/s/15FF331C87034758A8B2359E6A760A14Y)
+
+
+### 2022-06-15
 
 * [20220615-01-晓观天下：中国再次降为美国第三大贸易伙伴](https://www.asuswebstorage.com/navigate/a/#/s/206C4913C4D9484F85ECD057A4BB01E0Y)
 * [20220615-02-晓观天下：中国多地首套房贷利率降至10年低点](https://www.asuswebstorage.com/navigate/a/#/s/8562A3B7CBEC42A38560E1ACC56A1E3FY)

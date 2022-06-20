@@ -20,6 +20,17 @@
 
 ### 2022-06-18
 
+* [20220620-01-晓观天下：英将领这样定性俄乌战争 要求英军做好准备](https://www.asuswebstorage.com/navigate/a/#/s/F474B5DE68474B41A7DDCF733CAFA07CY)
+* [20220620-02-晓观天下：全球难民数量创历史最高记录](https://www.asuswebstorage.com/navigate/a/#/s/835C33D6387D4D47B0E54ABEC3348190Y)
+* [20220620-03-晓观天下：这样做可预期延长三分之一寿命](https://www.asuswebstorage.com/navigate/a/#/s/19E34352FA6A4219B143AA71BFA6C88CY)
+* [20220620-04-晓观天下：“勇于公战，怯于私斗”的某些国人](https://www.asuswebstorage.com/navigate/a/#/s/2EABA97B89AF4B13B15319B1FC596A4DY)
+* [20220620-05-晓观天下：马斯克惊曝：它对人类文明构成威胁](https://www.asuswebstorage.com/navigate/a/#/s/8CA95C95EE0947919078D259CF8298ACY)
+* [20220620-06-晓观天下：经济核弹！美抗中法案近3000页](https://www.asuswebstorage.com/navigate/a/#/s/37E12A6F13644D8780AA5B91BD13CFC2Y)
+* [20220620-07-晓观天下：美国有80%的可能性会经历90年代式衰退](https://www.asuswebstorage.com/navigate/a/#/s/0409A7129DD64C0F9AD71D0E49931A23Y)
+
+
+### 2022-06-18
+
 * [20220618-01-晓观天下：足以改变战争均势！他二度突访基辅宣布宏伟计划](https://www.asuswebstorage.com/navigate/a/#/s/6A6AC789AD7046F8AAF72D1CD6290E0BY)
 
 

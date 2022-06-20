@@ -18,6 +18,16 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2022-06-17
+
+* [20220617-01-晓观天下：法国、德国、意大利和罗马尼亚均表态赞成乌克兰立即获得欧盟候选国地位](https://www.asuswebstorage.com/navigate/a/#/s/C89E24CB663345EC869B18096ECD6E30Y)
+* [20220617-02-晓观天下：美官员认为俄乌冲突，北京学到4大教训](https://www.asuswebstorage.com/navigate/a/#/s/D6D14D4F981149B7A0279E0F8142F656Y)
+* [20220617-03-晓观天下：不买了！调查：美国一半购房者打了退堂鼓](https://www.asuswebstorage.com/navigate/a/#/s/4F88E59E8E09452F8EE29CBB750D4BF4Y)
+* [20220617-04-晓观天下：马斯克和推特员工直接对话，他说…](https://www.asuswebstorage.com/navigate/a/#/s/272481E8ED42411DA9504C29137DF04DY)
+* [20220617-05-赵晓荐文：俄罗斯人侵略成性实为地球之最](https://www.asuswebstorage.com/navigate/a/#/s/26220E6D2F614BCD85C50AF67E73C7D0Y)
+* [20220617-06-晓观天下：美股道指早盘跌破3万点 经济衰退恐惧加剧](https://www.asuswebstorage.com/navigate/a/#/s/73A3A0C8AFB9419F964E66A7FE903DC2Y)
+
+
 ### 2022-06-16
 
 * [20220616-01-晓观天下：加密货币血崩式下跌 华人首富半年赔856亿美元](https://www.asuswebstorage.com/navigate/a/#/s/6FEECEB3A59147689911D891209704A2Y)

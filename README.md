@@ -18,7 +18,14 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
-### 2022-06-18
+### 2022-06-21
+
+* [20220621-01-晓观天下：清零导致大量医疗废物的产生](https://www.asuswebstorage.com/navigate/a/#/s/5AAE85228A394A2E8704E4D2318FE251Y)
+* [20220621-02-晓观天下：马斯克：若不解决这个问题 特斯拉将一文不值](https://www.asuswebstorage.com/navigate/a/#/s/9A0C81D0E28844A69FDC9B3FC3AAC811Y)
+* [20220621-03-晓观天下：房企第二波偿债高峰到来](https://www.asuswebstorage.com/navigate/a/#/s/D7CDD86E5BAA44E3A2EFD26524AEEDC1Y)
+
+
+### 2022-06-20
 
 * [20220620-01-晓观天下：英将领这样定性俄乌战争 要求英军做好准备](https://www.asuswebstorage.com/navigate/a/#/s/F474B5DE68474B41A7DDCF733CAFA07CY)
 * [20220620-02-晓观天下：全球难民数量创历史最高记录](https://www.asuswebstorage.com/navigate/a/#/s/835C33D6387D4D47B0E54ABEC3348190Y)

@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-06-22
+
+* [20220622-01-晓观天下：Omicron家族完结篇？ 专家揭末代子孙](https://www.asuswebstorage.com/navigate/a/#/s/E43E100D2C424A998A5C76541CBE8520Y)
+* [20220622-02-晓观天下：美元“王者归来”！国际投资者纷纷囤积](https://www.asuswebstorage.com/navigate/a/#/s/029AA9230A0E486EA55D72FAE8864172Y)
+
 
 ### 2022-06-21
 

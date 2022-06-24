@@ -17,6 +17,14 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-06-24
+
+* [20220624-01-欧盟通过全球首个碳关税机制 中企再迎考验](https://www.asuswebstorage.com/navigate/a/#/s/94E68DCC6D8B4F3B91FC4D5127A7BE60Y)
+* [20220624-02-赵晓荐文：写作的最高使命是战胜谎言](https://www.asuswebstorage.com/navigate/a/#/s/502C7CB9BB1547A49C250E56ECD68302Y)
+* [20220624-03-晓观天下：乌克兰战场的局势又开始逆转了](https://www.asuswebstorage.com/navigate/a/#/s/C620B454C7B94E92A099BDE06FBAC4AFY)
+
+
 ### 2022-06-22
 
 * [20220622-01-晓观天下：Omicron家族完结篇？ 专家揭末代子孙](https://www.asuswebstorage.com/navigate/a/#/s/E43E100D2C424A998A5C76541CBE8520Y)

@@ -20,6 +20,11 @@
 
 ### 2022-06-27
 
+* [20220628-01-赵晓荐文：身体给你9次防止癌变的机会 不要错过了](https://www.asuswebstorage.com/navigate/a/#/s/BB0F5DE3382B4455A17B919776F65082Y)
+
+
+### 2022-06-27
+
 * [20220627-01-晓观天下：15年来最惨 打工族时薪仅9块](https://www.asuswebstorage.com/navigate/a/#/s/3C86803185554DE6A6BC3D251A8179BBY)
 * [20220627-02-晓观天下：史无前例的热浪和洪水正席卷中国](https://www.asuswebstorage.com/navigate/a/#/s/7E7B704783E34F7FA87AD17AEE5819EAY)
 * [20220627-03-晓观天下：美国组建“蓝太伙伴组织”以加强战略博弈](https://www.asuswebstorage.com/navigate/a/#/s/90CDA6C2B82E483ABD2FEF61D4F1E985Y)

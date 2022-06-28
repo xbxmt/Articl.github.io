@@ -18,6 +18,15 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2022-06-27
+
+* [20220627-01-晓观天下：15年来最惨 打工族时薪仅9块](https://www.asuswebstorage.com/navigate/a/#/s/3C86803185554DE6A6BC3D251A8179BBY)
+* [20220627-02-晓观天下：史无前例的热浪和洪水正席卷中国](https://www.asuswebstorage.com/navigate/a/#/s/7E7B704783E34F7FA87AD17AEE5819EAY)
+* [20220627-03-晓观天下：美国组建“蓝太伙伴组织”以加强战略博弈](https://www.asuswebstorage.com/navigate/a/#/s/90CDA6C2B82E483ABD2FEF61D4F1E985Y)
+* [20220627-04-晓观天下：中国最大房企碧桂园评级沦为“垃圾级”](https://www.asuswebstorage.com/navigate/a/#/s/BBCF728D0C944AF485B9BB9D3B461DD3Y)
+* [20220627-05-晓观天下：全球物价狂飙 中国躲过事出有因？](https://www.asuswebstorage.com/navigate/a/#/s/3B8AFAF0BCA94C3FB337B82269704970Y)
+
+
 ### 2022-06-24
 
 * [20220624-01-欧盟通过全球首个碳关税机制 中企再迎考验](https://www.asuswebstorage.com/navigate/a/#/s/94E68DCC6D8B4F3B91FC4D5127A7BE60Y)

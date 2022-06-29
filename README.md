@@ -17,8 +17,13 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-06-29
 
-### 2022-06-27
+* [20220629-01-晓观天下：美国百万选民转投共和党](https://www.asuswebstorage.com/navigate/a/#/s/B5BA24F051354EB79401AB05C76ECFBBY)
+* [20220629-02-晓观天下：亚洲金融风暴恐再起？](https://www.asuswebstorage.com/navigate/a/#/s/0444C42636E642B281ECC43079206DB0Y)
+
+
+### 2022-06-28
 
 * [20220628-01-赵晓荐文：身体给你9次防止癌变的机会 不要错过了](https://www.asuswebstorage.com/navigate/a/#/s/BB0F5DE3382B4455A17B919776F65082Y)
 

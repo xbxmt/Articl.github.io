@@ -19,6 +19,12 @@
 
 ### 2022-07-04
 
+* [20220705-01-赵晓荐文：顶级数学家有多厉害？厉害到你会觉得我在胡说…](https://www.asuswebstorage.com/navigate/a/#/s/E4C55DE274404756BFDAE4FEE88EE76EY)
+* [20220705-02-晓观天下：美股熊市来临 外银曝从现在到明年初 3进场时机](https://www.asuswebstorage.com/navigate/a/#/s/5C70686CB04945B58FA4C18AA6097D94Y)
+
+
+### 2022-07-04
+
 * [20220704-01-晓观天下：这只黑天鹅来了…](https://www.asuswebstorage.com/navigate/a/#/s/F3279A9716E349B08E89B39111015CA7Y)
 * [20220704-02-晓观天下：欧洲再现重大转向](https://www.asuswebstorage.com/navigate/a/#/s/6D1E8354E64446FF98B40E0339A7E324Y)
 * [20220704-03-生命经济学之小麦的故事](https://www.asuswebstorage.com/navigate/a/#/s/D346E80E72DF4AA1A9C0D25325ADF1CCY)

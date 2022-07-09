@@ -17,6 +17,21 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-07-09
+* [20220709-01-晓观天下：安倍遇害会有哪些连锁反应 中媒发文点出关键](https://www.asuswebstorage.com/navigate/a/#/s/655727747B7045F3A72F575E7EA3C9DCY)
+* [20220709-02-赵晓荐文：日经指数告诉你，“日本号战车”已经启动](https://www.asuswebstorage.com/navigate/a/#/s/52680CB58E364FED93690FBB0E3E13A5Y)
+
+
+### 2022-07-08
+
+* [20220708-01-晓观天下：如何走到这一步？英相约翰逊宣布辞职](https://www.asuswebstorage.com/navigate/a/#/s/DB98587EA71C41868FDC268BFCF87309Y)
+* [20220708-02-晓观天下：系统性金融危机即将来临](https://www.asuswebstorage.com/navigate/a/#/s/F102398C66E047C4953F778530B7D9B0Y)
+* [20220708-03-晓观天下：划时代！芬瑞加入北约 各国启动批准进程](https://www.asuswebstorage.com/navigate/a/#/s/B902B80EE02A4F5BA97BD51C12B75570Y)
+* [20220708-04-晓观天下：明天系10金融机构去向 新华信托被破产](https://www.asuswebstorage.com/navigate/a/#/s/F24959C181954DB19C0539DFBA2208C5Y)
+* [20220708-05-晓观天下：官媒发文，借清华学者之口，强调外交不能仅靠横眉冷对](https://www.asuswebstorage.com/navigate/a/#/s/2F92DC840B5744808F9E32D36339520CY)
+* [20220708-06-晓观天下：贾维德重磅发言，鲍里斯不得不辞职](https://www.asuswebstorage.com/navigate/a/#/s/96F8C8AC95E04082BD9F93B42BE4214DY)
+
+
 ### 2022-07-05
 
 * [20220705-01-赵晓荐文：顶级数学家有多厉害？厉害到你会觉得我在胡说…](https://www.asuswebstorage.com/navigate/a/#/s/E4C55DE274404756BFDAE4FEE88EE76EY)

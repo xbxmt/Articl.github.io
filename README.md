@@ -17,8 +17,24 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-07-15
+
+* [20220715-01-晓观天下：本世纪国际力量的重心将定在印度洋-太平洋地区](https://www.asuswebstorage.com/navigate/a/#/s/C7091ABE7B8748D78349C5935E5D3F24Y)
+* [20220715-02-晓观天下：防疫政策又调整](https://www.asuswebstorage.com/navigate/a/#/s/D3B8B66B016D40D1A009138DB54E674AY)
+* [20220715-03-晓观天下：言论严控升级](https://www.asuswebstorage.com/navigate/a/#/s/1A81D73DC245422CB29B31C5A161C7DFY)
+* [20220715-04-晓观天下：内部数据曝光 中国真实人口可能还不到12.8亿](https://www.asuswebstorage.com/navigate/a/#/s/FEDBC661BCE744609575F1ACAAC29BF2Y)
+* [20220715-05-晓观天下：美国通胀刷新41年纪录 邻国加拿大罕见加息100个基点](https://www.asuswebstorage.com/navigate/a/#/s/58AAB481786E4634B339B0BBC05886E6Y)
+* [20220715-06-晓观天下：俄乌战争，最大的赢家是……](https://www.asuswebstorage.com/navigate/a/#/s/98C80916549F47B2B8E13EE191277C4BY)
+* [20220715-07-晓观天下：10亿人数据泄露事件 传官方约谈阿里巴巴高管](https://www.asuswebstorage.com/navigate/a/#/s/442B2D516A0C409CBAC6C48FE31FE58AY)
+* [20220715-08-晓观天下：大蒜小麦水果购屋不稀奇 各地再出大绝招救楼市](https://www.asuswebstorage.com/navigate/a/#/s/FC03D4BE5C304FA98721CC62C73064A8Y)
+* [20220715-09-晓观天下：辽宁葫芦岛市：事业单位发工资非常困难](https://www.asuswebstorage.com/navigate/a/#/s/0BD8B8EEBDF84C29970C73934D4BC42EY)
+* [20220715-10-赵晓荐文：法国大革命，是对美国革命的拙劣模仿](https://www.asuswebstorage.com/navigate/a/#/s/8683843E7DB74E18BF7773C21B45A6A5Y)
+* [20220715-11-晓观天下：烂尾楼业主们的停贷行动有如星星之火](https://www.asuswebstorage.com/navigate/a/#/s/0FF8799FADD8459CAD68D6BABBF34407Y)
+* [20220715-12-晓观天下：今年上半年，中国民航运输整体亏损达1089亿元](https://www.asuswebstorage.com/navigate/a/#/s/12C4F516E1EE468AAD1B757912684316Y)
+
 
 ### 2022-07-13
+
 * [20220713-01-赵晓荐文：从拉夫罗夫想到了他：到死都没活明白的苏联外长](https://www.asuswebstorage.com/navigate/a/#/s/73818EBEECCA44BEB83F22A8B1C4A7AEY)
 * [20220713-02-晓观天下：抵御国家级黑客攻击 苹果将推锁定模式](https://www.asuswebstorage.com/navigate/a/#/s/CBDE16A4C84D4EC58427A9BD0AF6CE16Y)
 * [20220713-03-晓观天下：自己当总统，哥哥当总理，弟弟当财政部长](https://www.asuswebstorage.com/navigate/a/#/s/978B3F378B0B4F06A872F3A9032BD20BY)
@@ -30,12 +46,14 @@
 
 
 ### 2022-07-11
+
 * [20220711-01-晓观天下：被指称“刺杀安倍”罪魁祸首，喊冤叫屈](https://www.asuswebstorage.com/navigate/a/#/s/45FEF8C2DFE9412BA02EF0DE2D22EDC6Y)
 * [20220711-02-晓观天下：中国上半年GDP公布前 这些数字透露重要信号](https://www.asuswebstorage.com/navigate/a/#/s/71312166E50242A39BE244A9B3E2742AY)
 * [20220711-03-晓观天下：华尔街看走眼，行情大失控](https://www.asuswebstorage.com/navigate/a/#/s/14DDD39E54E64DD8BFC3597A4641AAF3Y)
 
 
 ### 2022-07-10
+
 * [20220710-01-晓观天下：谁来接替约翰逊？](https://www.asuswebstorage.com/navigate/a/#/s/5014CEFD5AAE463EBD088BEA107C8209Y)
 * [20220710-02-晓观天下：香港作为亚洲首屈一指的金融中心地位已然岌岌可危](https://www.asuswebstorage.com/navigate/a/#/s/985E2517A5854B4F986098430FA3E50DY)
 * [20220710-03-晓观天下：员工数量减少70%  三星将全面撤出中国](https://www.asuswebstorage.com/navigate/a/#/s/8AAB3381C6184257A4315246363C633AY)
@@ -43,6 +61,7 @@
 
 
 ### 2022-07-09
+
 * [20220709-01-晓观天下：安倍遇害会有哪些连锁反应 中媒发文点出关键](https://www.asuswebstorage.com/navigate/a/#/s/655727747B7045F3A72F575E7EA3C9DCY)
 * [20220709-02-赵晓荐文：日经指数告诉你，“日本号战车”已经启动](https://www.asuswebstorage.com/navigate/a/#/s/52680CB58E364FED93690FBB0E3E13A5Y)
 

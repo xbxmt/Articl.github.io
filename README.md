@@ -17,6 +17,20 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-07-16
+
+* [20220716-01-晓观天下：烂尾楼风暴蔓延  陕西上千苦主包围银保监局](https://www.asuswebstorage.com/navigate/a/#/s/5DD68B8623FF4C51A6B14639542DEAAEY)
+* [20220716-02-晓观天下：川普决定2024再选总统 只差何时宣布](https://www.asuswebstorage.com/navigate/a/#/s/C27B9A2B28494E7F84E3C48091BC266FY)
+* [20220716-03-晓观天下：中国学生申请到英国大学读书的人数再创新高，跃升为英国大学最大的海外市场](https://www.asuswebstorage.com/navigate/a/#/s/E724B5917871436585C2DD6EF62FB531Y)
+* [20220716-04-晓观天下：中国金融骨牌开始倒塌？](https://www.asuswebstorage.com/navigate/a/#/s/D2449695D78844A6B10EA21D78D14577Y)
+* [20220716-05-晓观天下：美联储激进升息警报解除 道指飙658点](https://www.asuswebstorage.com/navigate/a/#/s/6E1E7BB62F6642E5BBC624D037D96768Y)
+* [20220716-06-晓观天下：2035年前中国统一台湾？美防务专家真急了](https://www.asuswebstorage.com/navigate/a/#/s/CC5650DDB2BB43CBAD7CAD9E589B33C0Y)
+* [20220716-07-赵晓荐文：最近一段时间乌克兰战场上是捷报频传！](https://www.asuswebstorage.com/navigate/a/#/s/564A683BDD034C9E9788992E181E62DCY)
+* [20220716-08-晓观天下：枪杀安倍凶嫌家庭背景曝光 大写的悲剧](https://www.asuswebstorage.com/navigate/a/#/s/5553CD9DA7104C80ACF9BCE327E50BC9Y)
+* [20220716-09-中国不参与对俄制裁？最新数据意外透露真相](https://www.asuswebstorage.com/navigate/a/#/s/E44DD3A8513E44A5A1EDD9A3EAB0D9F2Y)
+* [20220716-10-晓观天下：二季度中国GDP同比增长0.4%](https://www.asuswebstorage.com/navigate/a/#/s/700A685B518347C4983E7631273C75C8Y)
+* [20220716-11-晓观天下：不要轻忽美国升息带来的资金移动所造成的冲击](https://www.asuswebstorage.com/navigate/a/#/s/5CA7D129AE594914A31B4230963655C7Y)
+
 ### 2022-07-15
 
 * [20220715-01-晓观天下：本世纪国际力量的重心将定在印度洋-太平洋地区](https://www.asuswebstorage.com/navigate/a/#/s/C7091ABE7B8748D78349C5935E5D3F24Y)

@@ -17,6 +17,18 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-07-20
+
+* [20220720-01-晓观天下：萨拉米切香肠战术——西方军援的缓慢升级](https://www.asuswebstorage.com/navigate/a/#/s/11A903542A2044AA924912F299600AD8Y)
+* [20220720-02-晓观天下：俄美互撂狠话——核危机来临的可能性](https://www.asuswebstorage.com/navigate/a/#/s/D2BACC9168C84730A2AFA4D25E74FE16Y)
+* [20220720-03-赵晓荐文：池莉：有生之年，不再屈服于羞辱和恐惧](https://www.asuswebstorage.com/navigate/a/#/s/FB08F08D69E44F28BCAE04B295244AB5Y)
+* [20220720-04-晓观天下：美财长推动创立“朋友相挺”供应链](https://www.asuswebstorage.com/navigate/a/#/s/08CF601726F34650932FE78B1DB34B88Y)
+* [20220720-05-晓观天下：统计局和财政部互相打脸](https://www.asuswebstorage.com/navigate/a/#/s/1B226D0BE7E4458696D9687D05A9E78FY)
+* [20220720-06-暮色中国：仅仅3年，这个国家发生巨变](https://www.asuswebstorage.com/navigate/a/#/s/D620ADEEF4FF4B42A13E8B955AA68992Y)
+* [20220720-07-晓观天下：中国持有美债历史 性下降](https://www.asuswebstorage.com/navigate/a/#/s/1509DB7CC4EB4DEDADAC499F69A461B1Y)
+* [20220720-08-晓观天下：大批企业倒闭 深圳精神病院一床难求？](https://www.asuswebstorage.com/navigate/a/#/s/943B9221D92C4D2790B8F05BF44451BCY)
+
+
 ### 2022-07-18
 
 * [20220718-01-赵晓荐文：脱钩后的日子肯定不是我们希望过的那种](https://www.asuswebstorage.com/navigate/a/#/s/C289841CCEE140CF88F2832DBBC2C279Y)

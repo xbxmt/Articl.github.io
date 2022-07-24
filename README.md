@@ -25,6 +25,9 @@
 * [20220722-04-晓观天下：最新情报！俄罗斯已耗掉过半导弹库存](https://www.asuswebstorage.com/navigate/a/#/s/ADAB2CA4C3374F1B8FAF09E4D56FA786Y)
 * [20220722-05-赵晓荐文：马斯克耍了所有人](https://www.asuswebstorage.com/navigate/a/#/s/6FBA7FE4378B448EB548981F29D118D7Y)
 * [20220722-06-晓观天下：房产净值与烂尾楼](https://www.asuswebstorage.com/navigate/a/#/s/1CD78F25D04245EBAFCB4B7276CA580CY)
+* [20220722-07-晓观天下：俄罗斯遭遇“史诗级惨败”，乌克兰获反攻良机](https://www.asuswebstorage.com/navigate/a/#/s/038878C6C308418EBC0CAFD92C4FC8DFY)
+* [20220722-08-晓观天下：美国经济行不行？华尔街水晶球透风向](https://www.asuswebstorage.com/navigate/a/#/s/D3D1F5EEDED443308379B1B7B42A806EY)
+* [20220722-09-晓观天下：晓观天下：中国金融海啸蔓延  又一产业开始暴雷…](https://www.asuswebstorage.com/navigate/a/#/s/F58A83701BA44FEA844ECB2BE10AA8FEY)
 
 
 ### 2022-07-20

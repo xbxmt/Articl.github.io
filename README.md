@@ -23,6 +23,9 @@
 * [20220727-02-晓观天下：惠誉评级：中国房地产危及世界贸易和风险情绪](https://www.asuswebstorage.com/navigate/a/#/s/5B5282A29EF348248CFCB5BEAED0CF48Y)
 * [20220727-03-晓观天下：中日关系恐陷冰河期](https://www.asuswebstorage.com/navigate/a/#/s/B8A781F4CB1341DFBF49B438D5C85CF1Y)
 * [20220727-04-是她！南京玄奘寺供奉日军战犯者内幕曝光](https://www.asuswebstorage.com/navigate/a/#/s/B07A6E4472E74E9B9B7290C742630F6DY)
+* [20220727-05-晓观天下：传奇投资者罗杰斯警告：一生中最糟糕的熊市](https://www.asuswebstorage.com/navigate/a/#/s/59FB72D7DEE94F35B5D0A93933F36025Y)
+* [20220727-06-晓观天下：8年新低 中国第二季创业投资量骤降](https://www.asuswebstorage.com/navigate/a/#/s/CEE56E14A7F4453583A47EEC4C9ACAD0Y)
+* [20220727-07-2020年以后，中国住院人数突然急剧下降3583万](https://www.asuswebstorage.com/navigate/a/#/s/572192288D5341B7A567085E10E66062Y)
 
 
 ### 2022-07-25

@@ -17,6 +17,13 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-07-29
+
+* [20220729-01-晓观天下：关键会议降低了调门](https://www.asuswebstorage.com/navigate/a/#/s/3D76B55856804CFC90B259BE1736379CY)
+* [20220729-02-晓观天下：保20大头等大事 放水1万亿救房地产](https://www.asuswebstorage.com/navigate/a/#/s/02C5078E5CDE40ABBBFA1138990C8E60Y)
+* [20220729-03-晓观天下：美经济连两季萎缩即“衰退”？诺奖得主批愚蠢](https://www.asuswebstorage.com/navigate/a/#/s/613140FC815D4EDD85C1F5C1A8374F3AY)
+
+
 ### 2022-07-27
 
 * [20220727-01-振奋！形势逆转 3因素致普京已无指望乌战获胜](https://www.asuswebstorage.com/navigate/a/#/s/1BECF42351CB43EDA1BD3E509D0DE16AY)

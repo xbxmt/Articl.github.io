@@ -22,6 +22,8 @@
 * [20220729-01-晓观天下：关键会议降低了调门](https://www.asuswebstorage.com/navigate/a/#/s/3D76B55856804CFC90B259BE1736379CY)
 * [20220729-02-晓观天下：保20大头等大事 放水1万亿救房地产](https://www.asuswebstorage.com/navigate/a/#/s/02C5078E5CDE40ABBBFA1138990C8E60Y)
 * [20220729-03-晓观天下：美经济连两季萎缩即“衰退”？诺奖得主批愚蠢](https://www.asuswebstorage.com/navigate/a/#/s/613140FC815D4EDD85C1F5C1A8374F3AY)
+* [20220729-04-赵晓荐文：滚蛋吧，外甥！](https://www.asuswebstorage.com/navigate/a/#/s/F5B1196E5075401EBD1D9754797ABE63Y)
+* [20220729-05-晓观天下：美国GDP连续2季萎缩　经济陷入“技术性衰退”](https://www.asuswebstorage.com/navigate/a/#/s/A27E1BDEACAA45FAAF8E0160552DF66DY)
 
 
 ### 2022-07-27

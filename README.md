@@ -24,6 +24,7 @@
 * [20220729-03-晓观天下：美经济连两季萎缩即“衰退”？诺奖得主批愚蠢](https://www.asuswebstorage.com/navigate/a/#/s/613140FC815D4EDD85C1F5C1A8374F3AY)
 * [20220729-04-赵晓荐文：滚蛋吧，外甥！](https://www.asuswebstorage.com/navigate/a/#/s/F5B1196E5075401EBD1D9754797ABE63Y)
 * [20220729-05-晓观天下：美国GDP连续2季萎缩　经济陷入“技术性衰退”](https://www.asuswebstorage.com/navigate/a/#/s/A27E1BDEACAA45FAAF8E0160552DF66DY)
+* [20220729-06-晓观天下：标普警告中国房市现况超严重 远超2008金融危机！](https://www.asuswebstorage.com/navigate/a/#/s/47CC3D08BBA14B9EA31FCD5BF663CF0CY)
 
 
 ### 2022-07-27

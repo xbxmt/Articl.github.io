@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-08-03
+
+* [20220803-01-晓观天下：佩洛西将见台积电董事长刘德音 讨论美“芯片与科学法案”实施](https://www.asuswebstorage.com/navigate/a/#/s/7EB3FFAEB68E49B184A08A307B191ADDY)
+
+
 ### 2022-07-30
 
 * [20220730-01-晓观天下：河南安徽启动第三波垫付款计划](https://www.asuswebstorage.com/navigate/a/#/s/87445E79CFCF43F793EC71286AF0B1D2Y)

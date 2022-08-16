@@ -17,6 +17,19 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-08-16
+
+* [20220816-01-晓观天下：前所未有的失业大潮](https://www.asuswebstorage.com/navigate/a/#/s/1E2D3A92107542319B98B7682DC6A493Y)
+* [20220816-02-晓观天下：德国析中西方全面脱钩的对华交](https://www.asuswebstorage.com/navigate/a/#/s/EB9C482EA85C4086B28E0AE62B060714Y)
+* [20220816-03-晓观天下：以色列智库建言以色列应明确选边](https://www.asuswebstorage.com/navigate/a/#/s/01EB0B116023443699E4B62DE9A29FB4Y)
+* [20220816-04-晓观天下：153家中概股遭美列摘牌名单](https://www.asuswebstorage.com/navigate/a/#/s/E80C847CCE264BE5AD0AF792C00AC01CY)
+* [20220816-05-7月新开工面积暴跌 中国房地产进入“求生模式”](https://www.asuswebstorage.com/navigate/a/#/s/46EE5574326040C4B3BD620A35017EC0Y)
+* [20220816-06-晓观天下：中概股退潮对港股冲击会很大](https://www.asuswebstorage.com/navigate/a/#/s/C635F42048E34F98AB936DDC7F41312CY)
+* [20220816-07-晓观天下：俄乌战争172天 俄军正在接近“欧米茄点”](https://www.asuswebstorage.com/navigate/a/#/s/A8A8F221290B41AA801D836B100152BAY)
+* [20220816-08-晓观天下：中国“最健康房企之一”也传爆雷？](https://www.asuswebstorage.com/navigate/a/#/s/D49528AAFF08474380181E6EB033C133Y)
+
+
 ### 2022-08-11
 
 * [20220811-01-晓观天下：数字大幅下降 美联储遏制通胀已“胜利在望”？](https://www.asuswebstorage.com/navigate/a/#/s/80545DDB0A2B492DA1126FE369B05118Y)

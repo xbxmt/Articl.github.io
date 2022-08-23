@@ -17,6 +17,26 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-08-23
+
+* [20220823-01-晓观天下：普京内外交困](https://www.asuswebstorage.com/navigate/a/#/s/DEDC3B87F9C94B96828947C5ACA3BFDAY)
+* [20220823-02-晓观天下：彭博认为中国重振投资信心显得越来越无能为力](https://www.asuswebstorage.com/navigate/a/#/s/784A4514A2B147BD95E62D57E8D55A0DY)
+* [20220823-03-晓观天下：只要躯体不要灵魂 结果就是地狱](https://www.asuswebstorage.com/navigate/a/#/s/8594126C649645E88F993DCC9CC8F8F1Y)
+* [20220823-04-晓观天下：“断卡行动”升级](https://www.asuswebstorage.com/navigate/a/#/s/AB3A61499C5743FEBDCDA354D61F6D23Y)
+
+
+### 2022-08-22
+
+* [20220822-01-晓观天下：2200万人快饿死](https://www.asuswebstorage.com/navigate/a/#/s/5EFCA3FD8C9B4A5D922A71EAF590FB83Y)
+* [20220822-02-晓观天下：世界是上帝的剧场，圣民的修道院](https://www.asuswebstorage.com/navigate/a/#/s/3609A5DC2F5849E594ADC75CC49F5834Y)
+* [20220822-03-晓观天下：从和服和假发：依存还是仇恨？](https://www.asuswebstorage.com/navigate/a/#/s/F2C7F502D242430ABBA31773EE04D675Y)
+* [20220822-04-晓观天下：投资雪崩4倍！中英关系坠崖？](https://www.asuswebstorage.com/navigate/a/#/s/9CF24CE1F1F14F909F9EBA78694A2C79Y)
+* [20220822-05-晓观天下：改掉这些坏习惯，研究：癌症前3大风险可预防](https://www.asuswebstorage.com/navigate/a/#/s/44B8FAF7D78B4C1E928660A881B3FCEAY)
+* [20220822-06-晓观天下：诺奖得主判断通胀已见顶，但台湾出问题将是一场灾难](https://www.asuswebstorage.com/navigate/a/#/s/2AE31560D9E140959209CCA60EEFDAE9Y)
+* [20220822-07-晓观天下：经济下行正引发可怕的财政危机](https://www.asuswebstorage.com/navigate/a/#/s/A2890D09D677421AA4CB7C016D18DE03Y)
+* [20220822-08-晓观天下：西方为“一中”加注，形势急转直下！](https://www.asuswebstorage.com/navigate/a/#/s/C094E1B459384AA7B96012404CFA4AB6Y)
+
+
 ### 2022-08-21
 
 * [20220821-01-晓观天下：疫情还要持续很久？钟南山最新言论引发热议](https://www.asuswebstorage.com/navigate/a/#/s/ED77542D9129464DA0656DEEA05844ADY)

@@ -17,6 +17,13 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-08-27
+
+* [20220827-01-赵晓荐文：中国的抉择：演进，内卷，还是革命？](https://www.asuswebstorage.com/navigate/a/#/s/07FD6E1EC54246759172C5E0EB352012Y)
+* [20220827-02-晓观天下：美中达成了审计协议](https://www.asuswebstorage.com/navigate/a/#/s/EBA65E8D6D8A474E84196E20C3D5A162Y)
+* [20220827-03-晓观天下：”电荒“始料不及 危机扩大](https://www.asuswebstorage.com/navigate/a/#/s/1317F160B99A4A848006C70714FD54E3Y)
+
+
 ### 2022-08-23
 
 * [20220823-01-晓观天下：普京内外交困](https://www.asuswebstorage.com/navigate/a/#/s/DEDC3B87F9C94B96828947C5ACA3BFDAY)

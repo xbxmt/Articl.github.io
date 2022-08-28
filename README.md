@@ -17,6 +17,12 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-08-28
+
+* [20220828-01-晓观天下：俄罗斯的结局及世界的趋势](https://www.asuswebstorage.com/navigate/a/#/s/D0982E4B175E4C4E9FEAD3F97F43864DY)
+* [20220828-02-晓观天下：乌克兰发布最新数据：俄罗斯战损惊人](https://www.asuswebstorage.com/navigate/a/#/s/2C582819FFAB4C7CA719F8D40313A5B7Y)
+
+
 ### 2022-08-27
 
 * [20220827-01-赵晓荐文：中国的抉择：演进，内卷，还是革命？](https://www.asuswebstorage.com/navigate/a/#/s/07FD6E1EC54246759172C5E0EB352012Y)

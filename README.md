@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-09-16
+
+* [20220916-01-每日灵修](https://www.asuswebstorage.com/navigate/a/#/s/3972B239C4F7412192BEAF29F68AD6E4Y)
+
+
 ### 2022-09-15
 
 * [20220915-01-每日灵修](https://www.asuswebstorage.com/navigate/a/#/s/AD16362BB2CE4EC8AD96FCAD2FCF6BA9Y)

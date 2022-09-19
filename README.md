@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-09-17
+
+* [20220917-01-赵晓灵修：从职场到先知的阿摩司](https://www.asuswebstorage.com/navigate/a/#/s/DED68D6CDCEC4FF79BD6954F31D9B99DY)
+
+
 ### 2022-09-16
 
 * [20220916-01-每日灵修](https://www.asuswebstorage.com/navigate/a/#/s/3972B239C4F7412192BEAF29F68AD6E4Y)

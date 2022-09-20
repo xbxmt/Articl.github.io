@@ -17,6 +17,21 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-09-20
+
+* [20220920-01-晓观天下：拜登重申：若台湾遭到入侵，美军将保卫台湾](https://www.asuswebstorage.com/navigate/a/#/s/4934553DF7974FB9900E3EBBED91890BY)
+
+
+### 2022-09-19
+
+* [20220919-01-每日灵修：真理与谬误仅一步之遥](https://www.asuswebstorage.com/navigate/a/#/s/C87B38798994403CAE8AB15ED348AA7DY)
+* [20220919-02-晓观天下：小马科斯改变了菲律宾的航向](https://www.asuswebstorage.com/navigate/a/#/s/E647EFD57AB04457A6355C03AA570EA4Y)
+* [20220919-03-晓观天下：白宫眼里的中俄关系](https://www.asuswebstorage.com/navigate/a/#/s/33B995EEBD834DCC9871F887DBAE23D1Y)
+* [20220919-04-晓观天下：白宫眼里的中俄关系](https://www.asuswebstorage.com/navigate/a/#/s/C3719CD5F66741478D175BF2C9F9C30FY)
+* [20220919-05-晓观天下：中国房价连续12个月下跌](https://www.asuswebstorage.com/navigate/a/#/s/40F20D33DF1A497AA1EABE57CBFF6EA2Y)
+* [20220919-06-晓观天下：复星出事了？](https://www.asuswebstorage.com/navigate/a/#/s/19D97FC31C774B82B09397A7F4702BBBY)
+
+
 ### 2022-09-17
 
 * [20220917-01-赵晓灵修：从职场到先知的阿摩司](https://www.asuswebstorage.com/navigate/a/#/s/DED68D6CDCEC4FF79BD6954F31D9B99DY)

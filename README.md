@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-09-21
+
+* [20220921-01-每日灵修：“万军之耶和华”](https://www.asuswebstorage.com/navigate/a/#/s/EB466D84ADF54FD98BBBA1C479A72E0FY)
+
+
 ### 2022-09-20
 
 * [20220920-01-晓观天下：拜登重申：若台湾遭到入侵，美军将保卫台湾](https://www.asuswebstorage.com/navigate/a/#/s/4934553DF7974FB9900E3EBBED91890BY)

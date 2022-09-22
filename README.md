@@ -23,6 +23,7 @@
 * [20220922-02-晓观天下：快讯！美联储宣布再加息75点](https://www.asuswebstorage.com/navigate/a/#/s/7CBCE81C4D14475BBEFBCD017C7CB12AY)
 * [20220922-03-晓观天下：“乌克兰将不复存在！”普京宣布：继续打下去](https://www.asuswebstorage.com/navigate/a/#/s/03B8E858F25F4360A0D0B6CA0F2F1A9EY)
 * [20220922-04-晓观天下：烂尾楼进展缓慢 “停贷潮”再起 民众反抗扩大](https://www.asuswebstorage.com/navigate/a/#/s/B672F69BB1C5413595342D084AC9D9DEY)
+* [20220922-05-美联储强势加息 全球经济危险](https://www.asuswebstorage.com/navigate/a/#/s/BE7D09528381412680A21EBC975905ADY)
 
 
 ### 2022-09-21

@@ -17,6 +17,16 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-09-23
+
+* [20220923-01-晓观天下：人民币失守7元大关，创2年来新低](https://www.asuswebstorage.com/navigate/a/#/s/3F12DD3E58884C37AD3C8B777B074B72Y)
+* [20220923-02-晓观天下：杜金认为俄乌冲突只有三种结束方式](https://www.asuswebstorage.com/navigate/a/#/s/98CE8B9A269149DC83129E3098349DF7Y)
+* [20220923-03-晓观天下：美参院全票通过：中国不再被作为发展中国家看待](https://www.asuswebstorage.com/navigate/a/#/s/EDE5255BC63644E9BCFFB6D2699C1702Y)
+* [20220923-04-晓观天下：华尔街的转向](https://www.asuswebstorage.com/navigate/a/#/s/B60A531A42BD415A997FF32E4376D56DY)
+* [20220923-05-晓观天下：普京豪赌，寡头陪命](https://www.asuswebstorage.com/navigate/a/#/s/68302F3379A04D8C810E6FF4E2B0E208Y)
+* [20220923-06-中国房地产成庞氏骗局，将面临断崖式下跌](https://www.asuswebstorage.com/navigate/a/#/s/48C508569D5B46D08CF29B2F3A2958ADY)
+
+
 ### 2022-09-22
 
 * [20220922-01-晓观天下：”带路“最新贷款情况](https://www.asuswebstorage.com/navigate/a/#/s/645595866B3F476486049CEB1747AC01Y)

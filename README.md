@@ -17,6 +17,36 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-09-26
+
+* [20220926-01-晓观天下：如果普京在乌克兰使用核武器，将会发生什么？](https://www.asuswebstorage.com/navigate/a/#/s/6C2C1B8B4D884874AFBEC36456243058Y)
+* [20220926-02-晓观天下：华尔街最准分析师：史上第三大债券熊市要来了](https://www.asuswebstorage.com/navigate/a/#/s/AB6587E56EFB460C87C4B20D3860886FY)
+
+
+### 2022-09-25
+
+* [20220925-01-晓观天下：昔日北大同窗，几乎同一时间，一个出狱一个入狱](https://www.asuswebstorage.com/navigate/a/#/s/9BC966670F554703BFE30280884BE6F4Y)
+* [20220925-02-晓观天下：不鸣则已！美国造出0.7nm芯片，EUV光刻机做不到](https://www.asuswebstorage.com/navigate/a/#/s/5220BD903A354019966BA7EEB73B5C3CY)
+* [20220925-03-中企老董揭中国芯片5种死法](https://www.asuswebstorage.com/navigate/a/#/s/BB817DF3F33A47F3ADB74F8DB92CC0F1Y)
+* [20220925-04-晓观天下：美汇升穿112逾20年高 离岸人币失守7.14关](https://www.asuswebstorage.com/navigate/a/#/s/1945D8639D714C31B8524A722411A992Y)
+* [20220925-05-晓观天下：普京已经踏上了不归路](https://www.asuswebstorage.com/navigate/a/#/s/3FC456A4BC334E1ABC9A1169AA522D0EY)
+* [20220925-06-晓观天下：紧缩冲击-全球资产定价之锚刷新逾10年新高](https://www.asuswebstorage.com/navigate/a/#/s/912345E2AFCB4B6DA0C673C82C9AD4CFY)
+* [20220925-07-晓观天下：李克强称“交通物流是市场经济命脉”](https://www.asuswebstorage.com/navigate/a/#/s/7EF63878615A412987EECE8B1E03816AY)
+* [20220925-08-晓观天下：最近的外交路线有重大调整](https://www.asuswebstorage.com/navigate/a/#/s/D82FD0B9CFA242258FD2CCBB42F4BAA8Y)
+* [20220925-09-晓观天下：中国企业真是没钱了](https://www.asuswebstorage.com/navigate/a/#/s/36C1DB5797434C0086D86278423BB597Y)
+
+
+### 2022-09-24
+
+* [20220924-01-晓观天下：普京“动员令”造成社会严重反弹](https://www.asuswebstorage.com/navigate/a/#/s/F141EF764C7D48E6BED8E1BF6EA7ED99Y)
+* [20220924-02-晓观天下：中国GDP增长速度低于亚洲其他国家 30年来首次](https://www.asuswebstorage.com/navigate/a/#/s/D80DC81117AC40B883824014C1177070Y)
+* [20220924-03-赵晓荐文：英女王葬礼，BBC悼文写得太好了](https://www.asuswebstorage.com/navigate/a/#/s/C0328AE5043040819F523EBAAF2E1B99Y)
+* [20220924-04-赵晓荐文：中国古代四大爱情故事，细思极恐](https://www.asuswebstorage.com/navigate/a/#/s/4D35018093304C09A4A06C8DF96C2BEFY)
+* [20220924-05-晓观天下：中国国安部智库副局级学者就“东升西降”重磅发文](https://www.asuswebstorage.com/navigate/a/#/s/ABED8CBBDEDD4A57993B0057536E5174Y)
+* [20220924-06-香港亚洲金融中心地位已被新加坡取代](https://www.asuswebstorage.com/navigate/a/#/s/CBF4172A6CA3479F8D8EF0611834B581Y)
+
+
 ### 2022-09-23
 
 * [20220923-01-晓观天下：人民币失守7元大关，创2年来新低](https://www.asuswebstorage.com/navigate/a/#/s/3F12DD3E58884C37AD3C8B777B074B72Y)

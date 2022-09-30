@@ -18,6 +18,12 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2022-09-30
+
+* [20220930-01-赵晓灵修：也谈灵修](https://www.asuswebstorage.com/navigate/a/#/s/BABB33AEB9CC4EC4B6363EE9D6E36042Y)
+* [20220930-02-晓观天下：英国罕见向中国喊话：不会袖手旁观！](https://www.asuswebstorage.com/navigate/a/#/s/DBB28D0D51404A29B3E32DDEA511470EY)
+
+
 ### 2022-09-26
 
 * [20220926-01-晓观天下：如果普京在乌克兰使用核武器，将会发生什么？](https://www.asuswebstorage.com/navigate/a/#/s/6C2C1B8B4D884874AFBEC36456243058Y)

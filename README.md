@@ -17,6 +17,15 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-10-01
+
+* [20221001-01-晓观天下：俄宣布合并乌占领区 美大手笔援乌重武器](https://www.asuswebstorage.com/navigate/a/#/s/5FDCA274C2544EFBA5A0F236EA70E87CY)
+* [20221001-02-晓观天下：美国和西方其他国家的对乌援助是需要偿还的吗？](https://www.asuswebstorage.com/navigate/a/#/s/2C4EC4A8A447458C89DAAC5E769DB2F2Y)
+* [20221001-03-晓观天下：胡锡进也悬了？怒喷官媒后疑遭删文网友力挺](https://www.asuswebstorage.com/navigate/a/#/s/42FFD59F3DC34E3C92CB0667D83305C3Y)
+* [20221001-04-赵晓：精英的无耻+百姓的无知=堕落无限=丧钟敲响](https://www.asuswebstorage.com/navigate/a/#/s/DAD461EF6A1346B980B3F247986BCC0BY)
+* [20221001-05-晓观天下：通胀压力 美股3大指数收跌至2022年新低](https://www.asuswebstorage.com/navigate/a/#/s/AE058BFCE6B64617817B44592609D701Y)
+* [20221001-06-HB：水调歌头](https://www.asuswebstorage.com/navigate/a/#/s/E099FB24F77C486BADABE7BD078CCE2EY)
+
 
 ### 2022-09-30
 

@@ -25,6 +25,7 @@
 * [20221001-04-赵晓：精英的无耻+百姓的无知=堕落无限=丧钟敲响](https://www.asuswebstorage.com/navigate/a/#/s/DAD461EF6A1346B980B3F247986BCC0BY)
 * [20221001-05-晓观天下：通胀压力 美股3大指数收跌至2022年新低](https://www.asuswebstorage.com/navigate/a/#/s/AE058BFCE6B64617817B44592609D701Y)
 * [20221001-06-HB：水调歌头](https://www.asuswebstorage.com/navigate/a/#/s/E099FB24F77C486BADABE7BD078CCE2EY)
+* [20221001-07-强烈信号！李克强又出手  一天四提“改革开放”](https://www.asuswebstorage.com/navigate/a/#/s/D29604A343544A47AB6119CF0FD2DF23Y)
 
 
 ### 2022-09-30

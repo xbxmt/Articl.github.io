@@ -22,6 +22,7 @@
 * [20221003-01晓观天下：未获足够票数，俄罗斯“被退群”](https://www.asuswebstorage.com/navigate/a/#/s/2E22DA124D234A86B45A0A4DDF4F176EY)
 * [20221003-02晓观天下：莱曼俄军被围歼尸横遍野](https://www.asuswebstorage.com/navigate/a/#/s/DE9F1103D8B74DE99EE13CE8AE59A0B2Y)
 * [20221003-03晓观天下：俄军是否会使用核武器？美防长作出最新研判](https://www.asuswebstorage.com/navigate/a/#/s/C56C311F1C824F429F49E986ED9F4645Y)
+* [20221003-04晓观天下：“涌现”、神迹与启示](https://www.asuswebstorage.com/navigate/a/#/s/8FA89EC2745E4E3C9A5877127EC23F48Y)
 
 
 ### 2022-10-02

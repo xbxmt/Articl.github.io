@@ -17,6 +17,17 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-10-04
+
+* [20221004-01晓观天下：美战争智库：被高估的俄罗斯军队](https://www.asuswebstorage.com/navigate/a/#/s/D51EB4C44DDF46C5AAC0B146404CFA8AY)
+* [20221004-02晓观天下：莫斯科正面临开战以来最危险的局面](https://www.asuswebstorage.com/navigate/a/#/s/C8280EE9469841BCADE67C039B89B46DY)
+* [20221004-03战局分析](https://www.asuswebstorage.com/navigate/a/#/s/FCCB77783B6E4F01A888DCBC1B3900E1Y)
+* [20221004-04美国国防部长警告：普京有可能发射原子弹](https://www.asuswebstorage.com/navigate/a/#/s/FB0080C96C6D4FFFA826DFB92C75255DY)
+* [20221004-05赵晓荐文：我们离这届人类的终结已经多近了？](https://www.asuswebstorage.com/navigate/a/#/s/07435F5DB44D40778E20B0BD04081F8AY)
+* [20221004-06诺贝尔大会](https://www.asuswebstorage.com/navigate/a/#/s/7811F61A954148A4B17CD962221351A7Y)
+* [20221004-07赵晓荐文：首个诺奖就爆冷！新科得主帕博：可爱到犯规，偏执到疯狂](https://www.asuswebstorage.com/navigate/a/#/s/CB8842A08DD847A59AB2A12EF4726BAAY)
+
+
 ### 2022-10-03
 
 * [20221003-01晓观天下：未获足够票数，俄罗斯“被退群”](https://www.asuswebstorage.com/navigate/a/#/s/2E22DA124D234A86B45A0A4DDF4F176EY)

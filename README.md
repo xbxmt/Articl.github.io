@@ -26,7 +26,7 @@
 * [20221007-05晓观天下：中国至少需要20至30年，才有可能在手机芯片领域赶上美国](https://www.asuswebstorage.com/navigate/a/#/s/1FDB1A70747C453383A4A86250980DA9Y)
 * [20221007-06晓观天下：过去8个月，中国债市总计外流982亿美元](https://www.asuswebstorage.com/navigate/a/#/s/CB5675201C5941E6A71C95109B4230D7Y)
 * [20221007-07晓观天下：先例！中国一大学要求学生上缴3类证件](https://www.asuswebstorage.com/navigate/a/#/s/3D4AADB7810C4CAD8AE1B94D17231859Y)
-* [20221007-08晓观天下：乌军在夺取莱曼之后真的是势如破竹摧枯拉朽](hhttps://www.asuswebstorage.com/navigate/a/#/s/8CAEA80155F7444EA2A79D468B528817Y)
+* [20221007-08晓观天下：乌军在夺取莱曼之后真的是势如破竹摧枯拉朽](https://www.asuswebstorage.com/navigate/a/#/s/8CAEA80155F7444EA2A79D468B528817Y)
 * [20221007-09晓观天下：美国在芯片上将有新动作](https://www.asuswebstorage.com/navigate/a/#/s/CB659F2F868343AB964795B1E0973051Y)
 
 

@@ -17,6 +17,19 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-10-07
+
+* [20221007-01晓观天下：这一被低估的危机 恐酿大祸](https://www.asuswebstorage.com/navigate/a/#/s/80614E1CB2AA4982B65A97B6FEA27971Y)
+* [20221007-02晓观天下：产油国的最新决定让拜登头疼](https://www.asuswebstorage.com/navigate/a/#/s/BA25F2B5CD0F4F34921CE2FED7FF7FADY)
+* [20221007-03晓观天下：终于，他们开始批判杜甫了](https://www.asuswebstorage.com/navigate/a/#/s/4B62D888B2F14741866C0C7B2FD00435Y)
+* [20221007-04晓观天下：腾讯和阿里巴巴情况不妙](https://www.asuswebstorage.com/navigate/a/#/s/EA79045EDD8B42AE87DC456F3FA8136BY)
+* [20221007-05晓观天下：中国至少需要20至30年，才有可能在手机芯片领域赶上美国](https://www.asuswebstorage.com/navigate/a/#/s/1FDB1A70747C453383A4A86250980DA9Y)
+* [20221007-06晓观天下：过去8个月，中国债市总计外流982亿美元](https://www.asuswebstorage.com/navigate/a/#/s/CB5675201C5941E6A71C95109B4230D7Y)
+* [20221007-07晓观天下：先例！中国一大学要求学生上缴3类证件](https://www.asuswebstorage.com/navigate/a/#/s/3D4AADB7810C4CAD8AE1B94D17231859Y)
+* [20221007-08晓观天下：乌军在夺取莱曼之后真的是势如破竹摧枯拉朽](hhttps://www.asuswebstorage.com/navigate/a/#/s/8CAEA80155F7444EA2A79D468B528817Y)
+* [20221007-09晓观天下：美国在芯片上将有新动作](https://www.asuswebstorage.com/navigate/a/#/s/CB659F2F868343AB964795B1E0973051Y)
+
+
 ### 2022-10-04
 
 * [20221004-01晓观天下：美战争智库：被高估的俄罗斯军队](https://www.asuswebstorage.com/navigate/a/#/s/D51EB4C44DDF46C5AAC0B146404CFA8AY)

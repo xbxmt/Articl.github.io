@@ -16,6 +16,22 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-10-10
+
+* [20221010-01赵晓荐文：俄乌战争是世界反法西斯战争下半场](https://www.asuswebstorage.com/navigate/a/#/s/87C336EB527B43F7992D4F62C68B9E18Y)
+* [20221010-02赵晓灵修：加尔文“有限的救赎”何以正确且重要？](https://www.asuswebstorage.com/navigate/a/#/s/F326E0D37143458883ACA17581E6E3A4Y)
+
+
+### 2022-10-09
+
+* [20221009-01晓观天下：白左难行，美国大赢](https://www.asuswebstorage.com/navigate/a/#/s/42EAEBC98758428999987A22D0B04760Y)
+
+
+### 2022-10-08
+
+* [20221008-01晓观天下：《隐入尘烟》何以隐入尘烟？](https://www.asuswebstorage.com/navigate/a/#/s/55E26EEF11224801BACA7598293BE053Y)
+* [20221008-02晓观天下：中国金融创新潮退，阿里巴巴神话不再](https://www.asuswebstorage.com/navigate/a/#/s/F501A308A94548EEB57079ABD997FDB6Y)
+
 
 ### 2022-10-07
 

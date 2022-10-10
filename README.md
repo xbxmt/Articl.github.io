@@ -20,6 +20,7 @@
 
 * [20221010-01赵晓荐文：俄乌战争是世界反法西斯战争下半场](https://www.asuswebstorage.com/navigate/a/#/s/87C336EB527B43F7992D4F62C68B9E18Y)
 * [20221010-02赵晓灵修：加尔文“有限的救赎”何以正确且重要？](https://www.asuswebstorage.com/navigate/a/#/s/F326E0D37143458883ACA17581E6E3A4Y)
+* [20221010-03赵晓灵修：加尔文“有限的救赎”何以正确且重要？](https://www.asuswebstorage.com/navigate/a/#/s/BB8E280932B4476DAC90DDB90D1B38EEY)
 
 
 ### 2022-10-09

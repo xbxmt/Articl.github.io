@@ -25,6 +25,7 @@
 ### 2022-10-09
 
 * [20221009-01晓观天下：白左难行，美国大赢](https://www.asuswebstorage.com/navigate/a/#/s/42EAEBC98758428999987A22D0B04760Y)
+* [20221009-02赵晓灵修：基督徒“认罪而不悔改”行吗？](https://www.asuswebstorage.com/navigate/a/#/s/6C9CF283CBE24177839E9D39A13404C2Y)
 
 
 ### 2022-10-08

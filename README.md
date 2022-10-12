@@ -16,6 +16,11 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-10-12
+
+* [20221012-01赵晓灵修：人是进化的还是创造的？](https://www.asuswebstorage.com/navigate/a/#/s/DCCE85A18A1F45FE91B6A17F0B7F5AF2Y)
+
+
 ### 2022-10-11
 
 * [20221011-01晓观天下：周五美国的非农数据](https://www.asuswebstorage.com/navigate/a/#/s/EB4AF32B4A894D1B88076B9A397A523FY)

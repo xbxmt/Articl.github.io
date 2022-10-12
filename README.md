@@ -16,6 +16,11 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-10-11
+
+* [20221011-01晓观天下：周五美国的非农数据](https://www.asuswebstorage.com/navigate/a/#/s/EB4AF32B4A894D1B88076B9A397A523FY)
+
+
 ### 2022-10-10
 
 * [20221010-01赵晓荐文：俄乌战争是世界反法西斯战争下半场](https://www.asuswebstorage.com/navigate/a/#/s/87C336EB527B43F7992D4F62C68B9E18Y)

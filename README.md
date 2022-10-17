@@ -16,6 +16,13 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+
+### 2022-10-15
+
+* [20221015-01晓观天下：房子却没那么好卖了](https://www.asuswebstorage.com/navigate/a/#/s/481B675DCB8346B180750B3440218AF8Y)
+* [20221015-02晓观天下：普丁软化宣布4不 不悔、不猛炸、不再动员、不摧毁乌克兰](https://www.asuswebstorage.com/navigate/a/#/s/6FD2E7F0D1374BAA82DC6798967CCB0FY)
+
+
 ### 2022-10-12
 
 * [20221012-01赵晓灵修：人是进化的还是创造的？](https://www.asuswebstorage.com/navigate/a/#/s/DCCE85A18A1F45FE91B6A17F0B7F5AF2Y)

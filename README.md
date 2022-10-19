@@ -16,6 +16,15 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-10-19
+
+* [20221019-01赵晓灵修：关于“一次得救永远得救”的回应与讨论](https://www.asuswebstorage.com/navigate/a/#/s/126A08B03C3E4FCC8496002CD1797886Y)
+
+
+### 2022-10-18
+
+* [20221018-01　晓观天下：地方财政赤字达万亿美元 中国经济承压增大](https://www.asuswebstorage.com/navigate/a/#/s/10531B219D01471DAA7A082ABB39630DY)
+
 
 ### 2022-10-15
 

@@ -16,6 +16,12 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-10-26
+
+* [20221026-01晓观天下；放宽对外国企业限制](https://www.asuswebstorage.com/navigate/a/#/s/46F99E61FAB6403882BE61C273FA7D15Y)
+* [20221026-02赵晓笔记：加尔文与新加尔文主义的政治观](https://www.asuswebstorage.com/navigate/a/#/s/658DDC9CED0C40C2AC94487E7EEEDC98Y)
+
+
 ### 2022-10-25
 
 * [20221025-01晓观天下：中概股杀声震天 中国富豪财富1天蒸发90亿美金](https://www.asuswebstorage.com/navigate/a/#/s/7A87749E9D6E46AFA2C3D4F89464A71CY)

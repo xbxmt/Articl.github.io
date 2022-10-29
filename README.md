@@ -17,6 +17,12 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-10-29
+
+* [20221029-01晓观天下：普京最新演讲，称俄罗斯没有威胁使用核武器](https://www.asuswebstorage.com/navigate/a/#/s/1A1FD1BA2BA8410FADDD8454FBD77C3CY)
+* [20221029-02赵晓灵修：经济-自由-法治-信仰](https://www.asuswebstorage.com/navigate/a/#/s/B0F6F3F16D8244B4B117AA47F7000A56Y)
+
+
 ### 2022-10-27
 
 * [20221027-01晓观天下：要弯道超美国？2060年前没门](https://www.asuswebstorage.com/navigate/a/#/s/EE164F9843D64F9CBE43B864A5057DCCY)

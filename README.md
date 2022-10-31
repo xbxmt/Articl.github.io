@@ -27,6 +27,7 @@
 * [20221031-05晓观天下：马斯克接手推特后即着手“平反冤案”](https://www.asuswebstorage.com/navigate/a/#/s/5574FA3E5E074A21A36DA1B7B487C0B9Y)
 * [20221031-06晓观天下：挽救出生率  传官方又出奇葩手段](https://www.asuswebstorage.com/navigate/a/#/s/74F676CB3A174F22BC53B3CD8F20A4D7Y)
 * [20221031-07晓观天下：被曝定居美国  大导冯小刚也润了？](https://www.asuswebstorage.com/navigate/a/#/s/AB80AD58C52241239996006328273CBAY)
+* [20221031-08赵晓灵修：人生如风](https://www.asuswebstorage.com/navigate/a/#/s/64288992715642F4B2C8BBDB5D3BFB16Y)
 
 
 ### 2022-10-29

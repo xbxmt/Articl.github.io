@@ -17,6 +17,18 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-10-31
+
+* [20221031-01晓观天下：越来越明显的信号  再读不懂别后悔](https://www.asuswebstorage.com/navigate/a/#/s/AC61670997BA4B1784F1E5D0E9BCC126Y)
+* [20221031-02晓观天下-戴琪：北京若停止改革开放 美国准备好了](https://www.asuswebstorage.com/navigate/a/#/s/9F2A9CE4AB2A47D18F13FD6674497049Y)
+* [20221031-03晓观天下：富士康员工徒步大逃离](https://www.asuswebstorage.com/navigate/a/#/s/D35E0075A5A04AFAAE03F973F44702E8Y)
+* [20221031-04晓观天下：终于后悔了 “中国民族主义旗手”公然叛变](https://www.asuswebstorage.com/navigate/a/#/s/386B3969C139439F8D73BF9625FE6475Y)
+* [20221031-05晓观天下：马斯克接手推特后即着手“平反冤案”](https://www.asuswebstorage.com/navigate/a/#/s/5574FA3E5E074A21A36DA1B7B487C0B9Y)
+* [20221031-06晓观天下：挽救出生率  传官方又出奇葩手段](https://www.asuswebstorage.com/navigate/a/#/s/74F676CB3A174F22BC53B3CD8F20A4D7Y)
+* [20221031-07晓观天下：被曝定居美国  大导冯小刚也润了？](https://www.asuswebstorage.com/navigate/a/#/s/AB80AD58C52241239996006328273CBAY)
+
+
 ### 2022-10-29
 
 * [20221029-01晓观天下：普京最新演讲，称俄罗斯没有威胁使用核武器](https://www.asuswebstorage.com/navigate/a/#/s/1A1FD1BA2BA8410FADDD8454FBD77C3CY)

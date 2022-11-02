@@ -17,6 +17,16 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-01
+
+* [20221101-01晓观天下：PMI下降至49.2，逊于预期](https://www.asuswebstorage.com/navigate/a/#/s/DFE4B9A71BA54F968A919C548FCC77A1Y)
+* [20221101-02晓观天下：供销社卷土重来](https://www.asuswebstorage.com/navigate/a/#/s/B5253F6CA7194DC1A77D960E3F85F086Y)
+* [20221101-03晓观天下：环球认为美对华实施“一体化威慑”](https://www.asuswebstorage.com/navigate/a/#/s/2CA401A7D66D435395B72E338596C94BY)
+* [20221101-04晓观天下：美政府解读对华芯片禁令](https://www.asuswebstorage.com/navigate/a/#/s/ADDB19BA67CC45A2A256C3C4565C879BY)
+* [20221101-05晓观天下：中国经济在2060年前不太可能赶超美国](https://www.asuswebstorage.com/navigate/a/#/s/6A1DE188664D4B9A86575A0D45DCBE2EY)
+* [20221101-06晓观天下：华邮：这三件事是新班子新任期优先要务](https://www.asuswebstorage.com/navigate/a/#/s/98672CA443FD464A90213DD3C6EF632DY)
+* [20221101-07晓观天下：会有对台一战吗：从中国大战略的倒推](https://www.asuswebstorage.com/navigate/a/#/s/39754836BA104D7782434514DBE78B0FY)
+
 
 ### 2022-10-31
 

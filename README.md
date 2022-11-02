@@ -17,6 +17,14 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-02
+
+* [20221102-01晓观天下：真的？传来这个“风声”  中港股市急升](https://www.asuswebstorage.com/navigate/a/#/s/962E9E2D966E4AC5954B1448AD3F66DDY)
+* [20221102-02晓观天下：马斯克解散推特董事会 李飞飞离职](https://www.asuswebstorage.com/navigate/a/#/s/B9B721EA851B40CB82144967146BBBABY)
+* [20221102-03晓观天下：50多名特斯拉Autopilot工程师入驻推特，要干嘛？](https://www.asuswebstorage.com/navigate/a/#/s/BBAF34BC0226487F996B7FB5567844BAY)
+* [20221102-04晓观天下：释放关键信号：20大后，要开始全面反制？](https://www.asuswebstorage.com/navigate/a/#/s/CF751AD2B73B4E9FA28A1A28344A03EEY)
+
+
 ### 2022-11-01
 
 * [20221101-01晓观天下：PMI下降至49.2，逊于预期](https://www.asuswebstorage.com/navigate/a/#/s/DFE4B9A71BA54F968A919C548FCC77A1Y)

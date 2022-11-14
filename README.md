@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-11
+
+* [20221111-01晓观天下：2022上海进博会情况](https://www.asuswebstorage.com/navigate/a/#/s/6D4373635F244F399DC1F3C29C3F6C4AY)
+
+
 ### 2022-11-02
 
 * [20221102-01晓观天下：真的？传来这个“风声”  中港股市急升](https://www.asuswebstorage.com/navigate/a/#/s/962E9E2D966E4AC5954B1448AD3F66DDY)

@@ -17,6 +17,15 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2022-11-15
+
+* [20221115-01晓观天下：人民日报也发声！这两天，四大信号非同寻常](https://www.asuswebstorage.com/navigate/a/#/s/73602E64420449A881A4DEECB96F84B7Y)
+* [20221115-02晓观天下：大摩警告：美元已见顶](https://www.asuswebstorage.com/navigate/a/#/s/97301E099C5C45C99EC2BD703494049BY)
+* [20221115-03晓观天下：石家庄解放了 但有人却害怕](https://www.asuswebstorage.com/navigate/a/#/s/3DB884A6F96742A983901BE868E730A0Y)
+* [20221115-04政策大转向！中国推金融16条，“史诗级救房市”](https://www.asuswebstorage.com/navigate/a/#/s/63B6E14561BB404CB8A96C198FBCA3FBY)
+
+
 ### 2022-11-11
 
 * [20221111-01晓观天下：2022上海进博会情况](https://www.asuswebstorage.com/navigate/a/#/s/6D4373635F244F399DC1F3C29C3F6C4AY)

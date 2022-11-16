@@ -17,6 +17,21 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-16
+
+* [20221116-01晓观天下：民主党创20年最佳表现，拜登嗨翻，共和党“已死”](https://www.asuswebstorage.com/navigate/a/#/s/AC29E21414BB4D128B8FB92B6EE14949Y)
+* [20221116-02晓观天下：阿里第一次未公布“双11”业绩](https://www.asuswebstorage.com/navigate/a/#/s/CDABC037FC3645FF94A756BA200E8DB0Y)
+* [20221116-03晓观天下：全球房市濒临衰退临界点 未来三年要麻烦](https://www.asuswebstorage.com/navigate/a/#/s/6006752B1A474730A527087F3BBA71CBY)
+* [20221116-04晓观天下：疫情可能开放，心态需要调整](https://www.asuswebstorage.com/navigate/a/#/s/F8428941D40B47EA9495C3C0B2E53765Y)
+* [20221116-05晓观天下：亚马逊市值蒸发万亿,要裁员上万,史上最狠](https://www.asuswebstorage.com/navigate/a/#/s/FCA139BE0E8C48099544D43AB3A35C9EY)
+* [20221116-06晓观天下：美参议员霍利：共和党需要进行重大变革](https://www.asuswebstorage.com/navigate/a/#/s/E3397F2263EE49D49CDEF485275721C2Y)
+* [20221116-07晓观天下：中国防疫政策转向？ 多地取消全员核酸](https://www.asuswebstorage.com/navigate/a/#/s/A727DF8C899A472F9AB5FF5D8FE0B960Y)
+* [20221116-08晓观天下：救房市 放宽防疫政策 何以中国经济困境仍持续？](https://www.asuswebstorage.com/navigate/a/#/s/01643A062C744C1FABAF2A2EE06582DDY)
+* [20221116-09晓观天下：中国富豪整体财富大缩水](https://www.asuswebstorage.com/navigate/a/#/s/DF858076533E4A1B99351A2EE668DA51Y)
+* [20221116-10晓观天下：压力山大！ 中国松绑房地产限制以扭转经济下行](https://www.asuswebstorage.com/navigate/a/#/s/6D39A7704F824C5C9917FF554BE4F5D4Y)
+* [20221116-11晓观天下：全球人口达80亿！她成全球第80亿人](https://www.asuswebstorage.com/navigate/a/#/s/9A156EF4EE06477F91E80860B961A7CAY)
+* [20221116-12赵晓荐文：美国2022中期选举观后感](https://www.asuswebstorage.com/navigate/a/#/s/929F0192686842B7AE359973EB7C0DBEY)
+
 
 ### 2022-11-15
 

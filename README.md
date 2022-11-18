@@ -17,6 +17,19 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-18
+
+* [20221118-01晓观天下：佩洛西宣布将卸任美国会众院民主党领袖](https://www.asuswebstorage.com/navigate/a/#/s/751F78D467CB40A5B965D1A33F2B5E70Y)
+* [20221118-02晓观天下：共和党赢得美国众议院多数席位](https://www.asuswebstorage.com/navigate/a/#/s/CFD9CADEC9AA45ADBFF2C1E08C72CF62Y)
+* [20221118-03晓观天下：中美欧经济同时恶化 世界失去引擎](https://www.asuswebstorage.com/navigate/a/#/s/BF677B5C5B8F4CA8BFC67EC41154FA1BY)
+* [20221118-04传谣？中国政法大学教授曝疫情放开惊天内幕](https://www.asuswebstorage.com/navigate/a/#/s/FBB4AB8BDB5A43B58A7AF728B4BA02FCY)
+* [20221118-05晓观天下：全球富豪最爱左右大脑的行业 原来是因为......](https://www.asuswebstorage.com/navigate/a/#/s/2F74B06C404C408AB99AFDF3F992D096Y)
+* [20221118-06晓观天下：台湾芯片工程师如今正在离开](https://www.asuswebstorage.com/navigate/a/#/s/625A072486254E818F135E1722D1EF19Y)
+* [20221118-07晓观天下：川普宣布再战2024 “最强助选”却表态不出马](https://www.asuswebstorage.com/navigate/a/#/s/F545ADEAB4C6486D803894F72EDB2B41Y)
+* [20221118-08晓观天下：快讯！麦康奈尔赢得美国参院共和党领导人选举](https://www.asuswebstorage.com/navigate/a/#/s/7629F91AB8F641D89E69C633D8F71F97Y)
+* [20221118-09晓观天下：波兰导弹事件反转？俄罗斯脱不了关系](https://www.asuswebstorage.com/navigate/a/#/s/843EAA615DD64163BDC4A3471272A194Y)
+
+
 ### 2022-11-16
 
 * [20221116-01晓观天下：民主党创20年最佳表现，拜登嗨翻，共和党“已死”](https://www.asuswebstorage.com/navigate/a/#/s/AC29E21414BB4D128B8FB92B6EE14949Y)

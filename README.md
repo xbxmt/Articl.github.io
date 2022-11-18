@@ -28,6 +28,9 @@
 * [20221118-07晓观天下：川普宣布再战2024 “最强助选”却表态不出马](https://www.asuswebstorage.com/navigate/a/#/s/F545ADEAB4C6486D803894F72EDB2B41Y)
 * [20221118-08晓观天下：快讯！麦康奈尔赢得美国参院共和党领导人选举](https://www.asuswebstorage.com/navigate/a/#/s/7629F91AB8F641D89E69C633D8F71F97Y)
 * [20221118-09晓观天下：波兰导弹事件反转？俄罗斯脱不了关系](https://www.asuswebstorage.com/navigate/a/#/s/843EAA615DD64163BDC4A3471272A194Y)
+* [20221118-10晓观天下：放弃蚂蚁控制权？马云出局了](https://www.asuswebstorage.com/navigate/a/#/s/C49769A4B4BF4DB09FF96E4E8FABDC20Y)
+* [20221118-11晓观天下：美国「红潮」没有再现的原因](https://www.asuswebstorage.com/navigate/a/#/s/E0A4E8B775194457BADB5AC4A75339A6Y)
+* [20221118-12荐文(湮灭之城)：观察美国，慎用“中国式”思维](https://www.asuswebstorage.com/navigate/a/#/s/7BE63974F3F148B9855682A6B355F440Y)
 
 
 ### 2022-11-16

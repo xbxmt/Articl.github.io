@@ -17,6 +17,24 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-20
+
+* [20221120-01美军首度证实！中国最新军事部署 美东不再安全](https://www.asuswebstorage.com/navigate/a/#/s/6509B6DD7130479C9AA4EADFA271A49AY)
+* [20221120-02中国又一个行业倒闭潮 半年倒闭4.6万家公司](https://www.asuswebstorage.com/navigate/a/#/s/C731A48677794FFCAE2B555C2380AD88Y)
+* [20221120-03晓观天下：巴菲特买台积电显示的信号](https://www.asuswebstorage.com/navigate/a/#/s/DC8A04B05CFA478ABDEBD20ADE318DE3Y)
+* [20221120-04晓观天下：人民币创半年来最大跌幅](https://www.asuswebstorage.com/navigate/a/#/s/8905F4C0DF1D41438F208F255B2295BBY)
+* [20221120-05晓观天下：中国青少年失踪事件频发 网友疑涉器官贩卖](https://www.asuswebstorage.com/navigate/a/#/s/6FB8BA8901A14418B4E01898D573251AY)
+* [20221120-06晓观天下：台积电转向美国投资](https://www.asuswebstorage.com/navigate/a/#/s/378AA419E0684609BBF3CD21F37ABC9AY)
+
+
+### 2022-11-19
+
+* [20221119-01晓观天下：金灿荣：未来5年会特别难....](https://www.asuswebstorage.com/navigate/a/#/s/58A985C2DC584F29830BA6EC2C2ED3DDY)
+* [20221119-02晓观天下：中国半导体人才荒 自给自足障碍大](https://www.asuswebstorage.com/navigate/a/#/s/3258A27219484BBC9EB62698ACF780D0Y)
+* [20221119-03赵晓灵修：基督徒与政治](https://www.asuswebstorage.com/navigate/a/#/s/068075B5D3CA43408FCEFBB125E4CAEBY)
+* [20221119-04晓观天下：G20巴厘岛开会众生相：亲疏远近全在小会](https://www.asuswebstorage.com/navigate/a/#/s/3F1BECE6F85C4E11A4FE1000000B86FDY)
+
+
 ### 2022-11-18
 
 * [20221118-01晓观天下：佩洛西宣布将卸任美国会众院民主党领袖](https://www.asuswebstorage.com/navigate/a/#/s/751F78D467CB40A5B965D1A33F2B5E70Y)

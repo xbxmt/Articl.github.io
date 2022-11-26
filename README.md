@@ -26,6 +26,7 @@
 * [20221126-05晓观天下：荷美进入谈判  禁止芯片设备出口中国](https://www.asuswebstorage.com/navigate/a/#/s/B86647320D7443B7AA4C43F4EB2604FCY)
 * [20221126-06晓观天下：美国眼下最关心两国关系中哪些问题？](https://www.asuswebstorage.com/navigate/a/#/s/F4A6219826ED4B72B93304BD03F5AA9EY)
 * [20221126-07晓观天下：老美其实自己也在天天唱衰美国](https://www.asuswebstorage.com/navigate/a/#/s/55244A5F455E42AD8D7370DE5C5BC186Y)
+* [20221126-08赵晓：天国不在天上，在地上](https://www.asuswebstorage.com/navigate/a/#/s/DB2F008C8B184FC292F77F57A4213F9AY)
 
 
 ### 2022-11-25

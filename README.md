@@ -17,6 +17,25 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-26
+
+* [20221126-01晓观天下：救经济 中国央行降准0.25个百分点](https://www.asuswebstorage.com/navigate/a/#/s/019282C01E6A4931BE78FB5B72C0E12DY)
+* [20221126-02晓观天下：俄乌战争或至2024年 IIF料全球经济放缓至1.2%](https://www.asuswebstorage.com/navigate/a/#/s/B62E224B4B084C7FB6DC5A865FB4F3F4Y)
+* [20221126-03晓观天下：北京人人自危疯狂抢购](https://www.asuswebstorage.com/navigate/a/#/s/67426CC6EE6E46F9BD1817551B06F7FDY)
+* [20221126-04晓观天下：被赶出美国后  华为又被逐出一关键市场](https://www.asuswebstorage.com/navigate/a/#/s/2EA22DD7333645308C78351010097983Y)
+* [20221126-05晓观天下：荷美进入谈判  禁止芯片设备出口中国](https://www.asuswebstorage.com/navigate/a/#/s/B86647320D7443B7AA4C43F4EB2604FCY)
+* [20221126-06晓观天下：美国眼下最关心两国关系中哪些问题？](https://www.asuswebstorage.com/navigate/a/#/s/F4A6219826ED4B72B93304BD03F5AA9EY)
+* [20221126-07晓观天下：老美其实自己也在天天唱衰美国](https://www.asuswebstorage.com/navigate/a/#/s/55244A5F455E42AD8D7370DE5C5BC186Y)
+
+
+### 2022-11-25
+
+* [20221125-01赵晓：加尔文主义是英美保守主义之父亲](https://www.asuswebstorage.com/navigate/a/#/s/892131EE8F4B4FCF9D9F9D69C93D2885Y)
+* [20221125-02晓观天下：中国推迟重开或使增长率降低1个百分点](https://www.asuswebstorage.com/navigate/a/#/s/0EA5A184B07247ACB63D469578A33DA8Y)
+* [20221125-03晓观天下：逾2万名富士康新员工已离职](https://www.asuswebstorage.com/navigate/a/#/s/1B2CD0E109514DD392984E0DDBABD8FDY)
+* [20221125-04晓观天下：每天烧9亿美元 俄军还能撑多久？](https://www.asuswebstorage.com/navigate/a/#/s/DAAD490EABFE4DA48BE2B61883CE59EDY)
+
+
 ### 2022-11-24
 
 * [20221124-01晓观天下：“十问卫健委”网络热传](https://www.asuswebstorage.com/navigate/a/#/s/E98E51880F05444984216CC302677E0EY)

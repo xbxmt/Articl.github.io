@@ -17,6 +17,15 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-11-27
+
+* [20221127-01晓观天下：中国大规模取消雅思考试](https://www.asuswebstorage.com/navigate/a/#/s/A68BFE3CFDAF43CEB88DEDB863D24ACDY)
+* [20221127-02晓观天下：美中脱钩无可避免](https://www.asuswebstorage.com/navigate/a/#/s/A781FC13C1C244F98A79326DEB1C6CACY)
+* [20221127-03晓观天下；台湾九合一选举 民进党惨败 蔡英文辞去党主席](https://www.asuswebstorage.com/navigate/a/#/s/C044BAD814084DAC8B313752898366D7Y)
+* [20221127-04晓观天下：北京数十个小区居民冲卡自行解封](https://www.asuswebstorage.com/navigate/a/#/s/DEAC4563AD4B48FA84D5E3A54B84D6B1Y)
+* [20221127-05晓观天下：中国财政支出增188% “清零”防疫还要加码](https://www.asuswebstorage.com/navigate/a/#/s/B2F7AED305174F57A8B0E814E6025D09Y)
+
+
 ### 2022-11-26
 
 * [20221126-01晓观天下：救经济 中国央行降准0.25个百分点](https://www.asuswebstorage.com/navigate/a/#/s/019282C01E6A4931BE78FB5B72C0E12DY)

@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-12-01
+
+* [20221201-01晓观天下：消息宣布后，人民币大涨近650点](https://www.asuswebstorage.com/navigate/a/#/s/8D198753C5C044658E73E632C2A305B6Y)
+
+
 ### 2022-11-27
 
 * [20221127-01晓观天下：中国大规模取消雅思考试](https://www.asuswebstorage.com/navigate/a/#/s/A68BFE3CFDAF43CEB88DEDB863D24ACDY)

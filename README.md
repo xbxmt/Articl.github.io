@@ -17,6 +17,22 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-12-05
+
+* [20221205-01晓观天下：重要信号！四大一线城市不再查验核酸！](https://www.asuswebstorage.com/navigate/a/#/s/A52F8322D7174E7489EA371D5335E532Y)
+* [20221205-02晓观天下：2022年还没结束，中国49.5万家餐企已“阵亡”](https://www.asuswebstorage.com/navigate/a/#/s/7E2FBB89020B41A891ABA5A5E3591B9DY)
+* [20221205-03晓观天下：学界和媒体纷纷发声 直陈当今中国要务](https://www.asuswebstorage.com/navigate/a/#/s/FF530DF4A5B54AA59CD06186CC529E75Y)
+* [20221205-04晓观天下：为平息抗议 伊朗取消“道德警察”](https://www.asuswebstorage.com/navigate/a/#/s/9D04DE0BD31E442883E32951309492B9Y)
+* [20221205-05今日读文金句摘录](https://www.asuswebstorage.com/navigate/a/#/s/BB6651D805B14D49898B4EA27BD950A3Y)
+
+
+### 2022-12-04
+
+* [20221204-01晓观天下：全球通胀有望缓解 联合国粮农组织发布最新数据](https://www.asuswebstorage.com/navigate/a/#/s/98110BDCF1EE48BAA70E81EE19D6D065Y)
+* [20221204-02晓观天下：跌跌跌......比特币凛冬已至](https://www.asuswebstorage.com/navigate/a/#/s/8E9165559FF04EDA84A15DD67B47D6D9Y)
+* [20221204-03晓观天下：真要放开了吗？](https://www.asuswebstorage.com/navigate/a/#/s/BC1680A1E14E42B597B063106D4F511DY)
+
+
 ### 2022-12-01
 
 * [20221201-01晓观天下：消息宣布后，人民币大涨近650点](https://www.asuswebstorage.com/navigate/a/#/s/8D198753C5C044658E73E632C2A305B6Y)

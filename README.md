@@ -16,6 +16,13 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-12-15
+
+* [20221215-01晓观天下：重大消息：美国通胀降温](https://www.asuswebstorage.com/navigate/a/#/s/25A1B1081DDB4B418067C45D5345C893Y)
+* [20221215-02晓观天下：大摩调高明年中国GDP增长预测 关注三大隐忧](https://www.asuswebstorage.com/navigate/a/#/s/85DBA72529044668A8E480D184175D6FY)
+* [20221215-03晓观天下：现今最严重的疾病是什么？](https://www.asuswebstorage.com/navigate/a/#/s/AEA1D5BEE9034407873F99A7492E2411Y)
+* [20221215-04晓观天下：中国首个城市入境“0+0”回国不隔离 落地就回家](https://www.asuswebstorage.com/navigate/a/#/s/EBF2DBDD0BD246DC841F5DA2B3D6878DY)
+
 
 ### 2022-12-05
 

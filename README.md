@@ -16,7 +16,7 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
-### 2022-12-15
+### 2022-12-16
 
 * [20221216-01晓观天下：疫情爆炸 官场静默](https://www.asuswebstorage.com/navigate/a/#/s/B0026565DC43407CA1C81C8B6738940CY)
 * [20221216-02晓观天下：美官宣黑名单 长江存储等中企无法取得特定技术](https://www.asuswebstorage.com/navigate/a/#/s/81375D9A6BE84F9991DA287949A6A889Y)

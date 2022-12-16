@@ -18,6 +18,14 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 ### 2022-12-15
 
+* [20221216-01晓观天下：疫情爆炸 官场静默](https://www.asuswebstorage.com/navigate/a/#/s/B0026565DC43407CA1C81C8B6738940CY)
+* [20221216-02晓观天下：美官宣黑名单 长江存储等中企无法取得特定技术](https://www.asuswebstorage.com/navigate/a/#/s/81375D9A6BE84F9991DA287949A6A889Y)
+* [20221216-03在华德企对中国信心降至历史新低](https://www.asuswebstorage.com/navigate/a/#/s/032586EBAFD74D91847558A8A8AF2679Y)
+* [20221216-04晓观天下：美国对台“战略清晰”政策逐渐清晰](https://www.asuswebstorage.com/navigate/a/#/s/366BEB77043C42D6AA9C2794A2788DF4Y)
+
+
+### 2022-12-15
+
 * [20221215-01晓观天下：重大消息：美国通胀降温](https://www.asuswebstorage.com/navigate/a/#/s/25A1B1081DDB4B418067C45D5345C893Y)
 * [20221215-02晓观天下：大摩调高明年中国GDP增长预测 关注三大隐忧](https://www.asuswebstorage.com/navigate/a/#/s/85DBA72529044668A8E480D184175D6FY)
 * [20221215-03晓观天下：现今最严重的疾病是什么？](https://www.asuswebstorage.com/navigate/a/#/s/AEA1D5BEE9034407873F99A7492E2411Y)

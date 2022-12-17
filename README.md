@@ -16,6 +16,14 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2022-12-17
+
+* [20221217-01晓观天下：人民币国际化道路愿景与现状评述](https://www.asuswebstorage.com/navigate/a/#/s/F78733810AE148A3B3C1D591CD912A74Y)
+* [20221217-02晓观天下：情况出乎意料的糟糕](https://www.asuswebstorage.com/navigate/a/#/s/D1D9EC946DFF4CF6B0D3BBFF65CE9F94Y)
+* [20221217-03晓观天下：最新预测：中美GDP不会逆转](https://www.asuswebstorage.com/navigate/a/#/s/E5A9F5B57D6448CDB276EBFEDB6071F6Y)
+* [20221217-04晓观天下：中国北京疫情有多严峻？](https://www.asuswebstorage.com/navigate/a/#/s/4D653CF9AFF94E639B49C5264A1A23B0Y)
+
+
 ### 2022-12-16
 
 * [20221216-01晓观天下：疫情爆炸 官场静默](https://www.asuswebstorage.com/navigate/a/#/s/B0026565DC43407CA1C81C8B6738940CY)

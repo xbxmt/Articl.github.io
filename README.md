@@ -16,6 +16,19 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+
+### 2022-12-19
+
+* [20221219-01晓观天下：阿根廷世界杯夺冠，梅西历史第一](https://www.asuswebstorage.com/navigate/a/#/s/912F20ABDE4642608EB2DFD684215569Y)
+* [20221219-02晓观天下：北岛归主了](https://www.asuswebstorage.com/navigate/a/#/s/DF7E191629E24017A53E3B3B057BD6F5Y)
+
+
+### 2022-12-18
+
+* [20221218-01晓观天下：2023年如何稳住外资，难度很大](https://www.asuswebstorage.com/navigate/a/#/s/E6C1B51494684F278979960C0A1334BEY)
+* [20221218-02晓观天下：中国经济危 外资今年自债市撤资1060亿美元](https://www.asuswebstorage.com/navigate/a/#/s/406F27BBDDDD41288898ACF4411D2164Y)
+
+
 ### 2022-12-17
 
 * [20221217-01晓观天下：人民币国际化道路愿景与现状评述](https://www.asuswebstorage.com/navigate/a/#/s/F78733810AE148A3B3C1D591CD912A74Y)

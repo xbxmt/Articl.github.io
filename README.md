@@ -17,6 +17,12 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-12-27
+
+* [20221227-01晓观天下：快讯！中国1月8日取消入境隔离](https://www.asuswebstorage.com/navigate/a/#/s/116247874B734BFAA661EC56BB02DE55Y)
+* [20221227-02晓观天下：美国会立法 全面审查中概股 否则加速下市](https://www.asuswebstorage.com/navigate/a/#/s/3BF234AB948646A5BD39DA41E69FDCCCY)
+
+
 ### 2022-12-19
 
 * [20221219-01晓观天下：阿根廷世界杯夺冠，梅西历史第一](https://www.asuswebstorage.com/navigate/a/#/s/912F20ABDE4642608EB2DFD684215569Y)

@@ -17,6 +17,20 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2022-12-31
+
+* [20221231-01晓观天下：還不長點記性  清華教授批芯片戰略錯誤](https://www.asuswebstorage.com/navigate/a/#/s/D0150C0BEAB6471097CC64C666EFD190Y)
+* [20221231-02晓观天下：张文宏预测：春节期间的感染率可能达到80%](https://www.asuswebstorage.com/navigate/a/#/s/6C8F829A4ED443869456A5F4D34049ADY)
+* [20221231-03晓观天下：美股收跌，结束了残酷的2022年](https://www.asuswebstorage.com/navigate/a/#/s/FFBA5D2DD4944C96A593F914C61FA355Y)
+
+
+### 2022-12-30
+
+* [20221230-01晓观天下：当心！房地产泡沫破灭深圳发出了2.0信号](https://www.asuswebstorage.com/navigate/a/#/s/5FA64CA4EE0141B19BEA312E0ABD1A1BY)
+* [20221230-02晓观天下：多国宣布对所有来自中国的旅客进行强制性新冠病毒测试](https://www.asuswebstorage.com/navigate/a/#/s/2E2750D0F7D64A868613C6CDBF02D565Y)
+* [20221230-03晓观天下：芯片用尽的华为另辟战场？美国恐继续围堵](https://www.asuswebstorage.com/navigate/a/#/s/808E8C065C68446FB12BA8AD77A8C3EAY)
+
+
 ### 2022-12-27
 
 * [20221227-01晓观天下：快讯！中国1月8日取消入境隔离](https://www.asuswebstorage.com/navigate/a/#/s/116247874B734BFAA661EC56BB02DE55Y)

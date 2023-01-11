@@ -17,6 +17,16 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2023-01-11
+
+* [20230111-01晓观天下：马云“被退休”](https://www.asuswebstorage.com/navigate/a/#/s/30E14637DEEE4BACB0D0CB44BDB2E039Y)
+* [20230111-02晓观天下：大佬雷军也要开始“跑路”了](https://www.asuswebstorage.com/navigate/a/#/s/D8542C73F4F74998ADCD8B37B7D65B91Y)
+* [20230111-03晓观天下：赵立坚被提前调离 这才是关键原因](https://www.asuswebstorage.com/navigate/a/#/s/B06541E2296F4F65824001E43AFE483FY)
+* [20230111-04晓观天下：告别二次感染高峰 中国疫情终结的4个条件已齐备](https://www.asuswebstorage.com/navigate/a/#/s/25235895DB4C46ACB88F435F3618AC54Y)
+* [20230111-05晓观天下：被提前的2023春运，避难式返乡](https://www.asuswebstorage.com/navigate/a/#/s/0D10C66808CC4F39AA64C46604721C32Y)
+* [20230111-06晓观天下：地方政府“城投债”“第一滴血”](https://www.asuswebstorage.com/navigate/a/#/s/1E5F2D26E379490394799BB1BFF6DA88Y)
+
+
 ### 2022-12-31
 
 * [20221231-01晓观天下：還不長點記性  清華教授批芯片戰略錯誤](https://www.asuswebstorage.com/navigate/a/#/s/D0150C0BEAB6471097CC64C666EFD190Y)

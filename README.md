@@ -17,6 +17,15 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2023-01-12
+
+* [20230112-01晓观天下：世界经济论坛报告：这危机成全球最大风险](https://www.asuswebstorage.com/navigate/a/#/s/F6568E01F5E842E2B4AB567FDC748675Y)
+* [20230112-02晓观天下：巴菲特入股这5家公司，回报均超过100%](https://www.asuswebstorage.com/navigate/a/#/s/5E3DABA9179A4F4FBAD7D2B4BC828649Y)
+* [20230112-03晓观天下：中国经济放开后，是会好转还是撑不下去？](https://www.asuswebstorage.com/navigate/a/#/s/198DDDFF87DD410BA48F7882CABCC8FAY)
+* [20230112-04晓观天下：约瑟夫·奈伊：美已掌握北京的经济命脉](https://www.asuswebstorage.com/navigate/a/#/s/0BD7838EE9D14DA4B972A3BD9D41178FY)
+
+
 ### 2023-01-11
 
 * [20230111-01晓观天下：马云“被退休”](https://www.asuswebstorage.com/navigate/a/#/s/30E14637DEEE4BACB0D0CB44BDB2E039Y)

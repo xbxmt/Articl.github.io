@@ -17,6 +17,17 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2023-01-13
+
+* [20230113-01晓观天下：收紧能源绞索 美国众院高票通过新法](https://www.asuswebstorage.com/navigate/a/#/s/20AA5D0EBF894323A4DBED8E721703DAY)
+* [20230113-02晓观天下：对华认知生变，西方在四个方面渐行渐远](https://www.asuswebstorage.com/navigate/a/#/s/085A797C2CC543FF9E6936BE176C59EFY)
+* [20230113-03晓观天下：新年第一雷！](https://www.asuswebstorage.com/navigate/a/#/s/3942BBAC71C549EE8A0623D4B71F659DY)
+* [20230113-04晓观天下：今年新春是个坎儿！张文宏公开自身感染经历](https://www.asuswebstorage.com/navigate/a/#/s/D389E57D06C646BBB275428C23FCF395Y)
+* [20230113-05晓观天下：血滴光了？中国滴滴业绩暴跌 传农历年前大裁员](https://www.asuswebstorage.com/navigate/a/#/s/A3DC5A5A37F841D189C7689AA4B5BC64Y)
+* [20230113-06晓观天下：CPI证实通膨降温 那指连涨5日](https://www.asuswebstorage.com/navigate/a/#/s/082825F1F4CC4F4FBE049C95C15F7644Y)
+* [20230113-07晓观天下：上海厂第三期扩建计划已被推迟](https://www.asuswebstorage.com/navigate/a/#/s/FC10FE81E5884847B05EFD77E693CCBDY)
+* [20230113-08晓观天下：解封1周 中国出境航班仅恢复疫前15%](https://www.asuswebstorage.com/navigate/a/#/s/B2C1D3398F464873A2CDB81715FC214FY)
+
 
 ### 2023-01-12
 

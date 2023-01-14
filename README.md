@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2023-01-14
+
+* [20230114-01赵晓灵修：告别的年代：我们的盼望在哪里？](https://www.asuswebstorage.com/navigate/a/#/s/956FDFF53310421799CCB2EF918D45BCY)
+
+
 ### 2023-01-13
 
 * [20230113-01晓观天下：收紧能源绞索 美国众院高票通过新法](https://www.asuswebstorage.com/navigate/a/#/s/20AA5D0EBF894323A4DBED8E721703DAY)

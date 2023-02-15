@@ -16,6 +16,12 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2023-02-15
+
+* [20230215-01晓观天下：“（中国）市场虽大，但外企关心的是能取得多少商机”](https://www.asuswebstorage.com/navigate/a/#/s/7A324E4A801F425A83204657018CF4B6Y)
+* [20230215-02晓观天下：严重！中共中央一号文件多次提这个事](https://www.asuswebstorage.com/navigate/a/#/s/D193338D48B84DF590D19CA4F4CBA27CY)
+
+
 ### 2023-02-08
 
 * [20230208-01晓观天下：气球事件完全揭露中美脆弱的关系](https://www.asuswebstorage.com/navigate/a/#/s/18ADA7A30F1F41579E38125EC8620369Y)

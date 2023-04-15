@@ -16,6 +16,11 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+### 2023-04-15
+
+* [20230415-01晓观天下：欧洲为什么不能脱离美国，成为单独一极？](https://www.asuswebstorage.com/navigate/a/#/s/6A59C793F49C45368FF5390881219241Y)
+
+
 ### 2023-03-27
 
 * [20230327-01“神的爱是无条件的”吗？](https://www.asuswebstorage.com/navigate/a/#/s/DA659E04AB0D4C4B8EA9D054D7EB19F7Y)

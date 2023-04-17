@@ -16,6 +16,18 @@
 ![](https://pic.imgdb.cn/item/6258dd5b239250f7c52b3e47.jpg)
 
 为达到观看效果，建议将网址复制到浏览器观看。
+
+### 2023-04-16
+
+* [20230416-01晓观天下：熏报评德强硬女外长态度果决 中国外长首次承诺](https://www.asuswebstorage.com/navigate/a/#/s/0BC0D1A66BF64CEA80310479674BFD7FY)
+* [20230416-02晓观天下：德国基民盟、社民盟承认失败并调整路线](https://www.asuswebstorage.com/navigate/a/#/s/2C2B942B3D7C4868BFA2431F692948CAY)
+* [20230416-03晓观天下：斯大林的晚年，犹如冢中枯骨](https://www.asuswebstorage.com/navigate/a/#/s/04A168250CDC44B396D7F025E72CF885Y)
+* [20230416-04晓观天下：独裁者蛮可怜的](https://www.asuswebstorage.com/navigate/a/#/s/A6515987FB9F4C04954A4D348CFAAC63Y)
+* [20230416-05晓观天下：美国军事情报泄漏，谁干的？](https://www.asuswebstorage.com/navigate/a/#/s/F3A4CA3D48BF4337A213D2415201B925Y)
+* [20230416-06晓观天下：美军机密文件显示 俄特种部队伤亡惨 重建恐耗十年](https://www.asuswebstorage.com/navigate/a/#/s/45BF0454CC514D79BEAB4DD231A6E0B2Y)
+* [20230416-07晓观天下：卸任后首度同台 川普、彭斯为拥枪王见王](https://www.asuswebstorage.com/navigate/a/#/s/9141361A7107449AAE2766A18E4BC751Y)
+
+
 ### 2023-04-15
 
 * [20230415-01晓观天下：欧洲为什么不能脱离美国，成为单独一极？](https://www.asuswebstorage.com/navigate/a/#/s/6A59C793F49C45368FF5390881219241Y)

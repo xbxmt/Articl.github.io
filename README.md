@@ -20,6 +20,7 @@
 ### 2023-04-17
 
 * [20230417-01晓观天下：内循环“不以人的意志为转移”。](https://www.asuswebstorage.com/navigate/a/#/s/9985D4AD4246465C978FAA908C5BF87BY)
+* [20230417-02晓观天下：俄乌战争2024年前都将继续](https://www.asuswebstorage.com/navigate/a/#/s/AF3018349E944DC6BF6F339F866B741EY)
 
 
 ### 2023-04-16

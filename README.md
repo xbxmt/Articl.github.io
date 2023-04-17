@@ -17,6 +17,11 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+### 2023-04-17
+
+* [20230417-01晓观天下：内循环“不以人的意志为转移”。](https://www.asuswebstorage.com/navigate/a/#/s/9985D4AD4246465C978FAA908C5BF87BY)
+
+
 ### 2023-04-16
 
 * [20230416-01晓观天下：熏报评德强硬女外长态度果决 中国外长首次承诺](https://www.asuswebstorage.com/navigate/a/#/s/0BC0D1A66BF64CEA80310479674BFD7FY)

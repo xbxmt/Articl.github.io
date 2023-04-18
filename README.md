@@ -17,6 +17,15 @@
 
 为达到观看效果，建议将网址复制到浏览器观看。
 
+
+### 2023-04-18
+
+* [20230418-01晓观天下：放弃27万亿市场 又一家基金公司“润”出中国](https://www.asuswebstorage.com/navigate/a/#/s/230E872A465C405EA420C502677BE45EY)
+* [20230418-02昴观天下：特斯拉上海工厂招聘 月薪1万元引热议](https://www.asuswebstorage.com/navigate/a/#/s/4DEB8E500D634FCD88F9D2980C45884BY)
+* [20230418-03晓观天下：“熊猫外交”时代宣告终结](https://www.asuswebstorage.com/navigate/a/#/s/A14548F448474711B1123D7E6AAD4540Y)
+* [20230418-04晓观天下：中国房产税未至房东税却先来了 引发抛售潮？](https://www.asuswebstorage.com/navigate/a/#/s/56D374527C984C0A9D3E0087C970B494Y)
+
+
 ### 2023-04-17
 
 * [20230417-01晓观天下：内循环“不以人的意志为转移”。](https://www.asuswebstorage.com/navigate/a/#/s/9985D4AD4246465C978FAA908C5BF87BY)

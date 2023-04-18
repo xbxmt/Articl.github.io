@@ -25,6 +25,8 @@
 * [20230418-03晓观天下：“熊猫外交”时代宣告终结](https://www.asuswebstorage.com/navigate/a/#/s/A14548F448474711B1123D7E6AAD4540Y)
 * [20230418-04晓观天下：中国房产税未至房东税却先来了 引发抛售潮？](https://www.asuswebstorage.com/navigate/a/#/s/56D374527C984C0A9D3E0087C970B494Y)
 * [20230418-05晓观天下：苹果何以称霸美智慧手机市场？理由意想不到](https://www.asuswebstorage.com/navigate/a/#/s/32CCF6E7E43B418488549DB5C71D2C68Y)
+* [20230418-06赵晓原创：中国思想的天花板、西方思想的地板](https://www.asuswebstorage.com/navigate/a/#/s/3C8DB1643CD44722B0164B50568C7B26Y)
+* [20230418-07晓观天下：谁更重要？苹果还是谷歌、微软？](https://www.asuswebstorage.com/navigate/a/#/s/58F422885FF5460CB1969DB91F7F4041Y)
 
 
 ### 2023-04-17

@@ -18,6 +18,12 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2023-04-19
+
+* [20230419-01晓观天下：AI界的大瓜来了，ChatGPT之父首次表态](https://www.asuswebstorage.com/navigate/a/#/s/79EDA43420A744FAA0A17245472F3CFDY)
+* [20230419-02赵晓荐文：世上最好的养生，就三个字](https://www.asuswebstorage.com/navigate/a/#/s/7BA3C41967CC4AF7A26833B96971C3BDY)
+
+
 ### 2023-04-18
 
 * [20230418-01晓观天下：放弃27万亿市场 又一家基金公司“润”出中国](https://www.asuswebstorage.com/navigate/a/#/s/230E872A465C405EA420C502677BE45EY)

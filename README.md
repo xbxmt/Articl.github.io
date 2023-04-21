@@ -18,6 +18,15 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+
+### 2023-04-21
+
+* [20230421-01晓观天下：野村经济学家判断中国房市V型反弹今年还没戏](https://www.asuswebstorage.com/navigate/a/#/s/EA87BA36890543F2B4FB46CFAC2B0A53Y)
+* [20230421-02晓观天下：卖740万硬盘给华为 这家美国公司惨了](https://www.asuswebstorage.com/navigate/a/#/s/442B8B6F64C54D45956FEF7130504FA6Y)
+* [20230421-03晓观天下：特斯拉降价 中国车厂库存堆积如山 卖一辆赔一辆](https://www.asuswebstorage.com/navigate/a/#/s/AAB1FD9A56DA40AABB2B995F9A7E911EY)
+* [20230421-04晓观天下：星舰爆炸原因曝光 马斯克发推“学到很多”](https://www.asuswebstorage.com/navigate/a/#/s/B30B85DC8C7D4DB397E5E46477D4440FY)
+
+
 ### 2023-04-20
 
 * [20230420-01晓观天下：重磅历史转折：它正式超越中国，成全球第一](https://www.asuswebstorage.com/navigate/a/#/s/48A4DC3D2E8C4E6EA6922E2C207ACBFFY)

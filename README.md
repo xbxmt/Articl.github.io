@@ -18,6 +18,11 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2023-04-23
+
+* [20230423-01晓观天下：突发！5月中国出国考试大面积取消](https://www.asuswebstorage.com/navigate/a/#/s/5CB476ACA1944B659B11FB5C45EC668BY)
+* [20230423-02晓观天下：元气满满的109岁老人不藏私，公布长寿秘诀](https://www.asuswebstorage.com/navigate/a/#/s/62BD584ABADC4CD5B77DEE331E6EF4D2Y)
+
 
 ### 2023-04-21
 

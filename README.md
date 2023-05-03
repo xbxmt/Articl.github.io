@@ -18,6 +18,21 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2023-0-01
+
+* [20230501-01晓观天下：人民币国际化化的真相：本币结算的金融戏法](https://www.asuswebstorage.com/navigate/a/#/s/A92A9849466F48E8B4BF4135487217ACY)
+
+
+### 2023-04-30
+
+* [20230430-01晓观天下：不到一年大逆转！六大影响 中韩走上不归路](https://www.asuswebstorage.com/navigate/a/#/s/C61EC4ACE6A640EB8ACC5B02705ECB93Y)
+
+
+### 2023-04-28
+
+* [20230428-01晓观天下：拜登首次提到这一说法，值得警惕！官媒发文](https://www.asuswebstorage.com/navigate/a/#/s/A63443E2870042B08A511E61F3B072EFY)
+
+
 ### 2023-04-26
 
 * [20230426-01晓观天下：他撬动了红色帝国](https://www.asuswebstorage.com/navigate/a/#/s/7958871DF1554340A9E69C1C908900D6Y)

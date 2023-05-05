@@ -23,7 +23,6 @@
 * [20230505-01晓观天下：全方位重磅解析：三年“清零”的六个代价](https://www.asuswebstorage.com/navigate/a/#/s/0BF35CC95C624B0491F1461A9E18C86FY)
 
 
-
 ### 2023-05-01
 
 * [20230501-01晓观天下：人民币国际化化的真相：本币结算的金融戏法](https://www.asuswebstorage.com/navigate/a/#/s/A92A9849466F48E8B4BF4135487217ACY)

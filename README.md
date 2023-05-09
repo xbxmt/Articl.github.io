@@ -18,6 +18,14 @@
 为达到观看效果，建议将网址复制到浏览器观看。
 
 
+### 2023-05-09
+
+* [20230509-01晓观天下：巴菲特谈ChatGPT](https://www.asuswebstorage.com/navigate/a/#/s/1110AEA0CAA94CE48FF71E102CA67BCFY)
+* [20230509-02晓观天下：冰山一角！哈尔滨财政现状触目惊心](https://www.asuswebstorage.com/navigate/a/#/s/523A8CD873984E418737D50A44C20CBAY)
+* [20230509-03晓观天下：蚂蚁集团的麻烦还没有完…](https://www.asuswebstorage.com/navigate/a/#/s/10653A2985EB471782086CAA98EAAFEAY)
+
+
+
 ### 2023-05-05
 
 * [20230505-01晓观天下：全方位重磅解析：三年“清零”的六个代价](https://www.asuswebstorage.com/navigate/a/#/s/0BF35CC95C624B0491F1461A9E18C86FY)
